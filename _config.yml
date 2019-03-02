@@ -1,0 +1,11 @@
+# basic options
+title: My Favorite Music Live
+author: 도경구
+email: dosori@gmail.com
+description: The collection of music live
+twitter_username:
+github_username: Doggzone
+
+# Build settings
+markdown: kramdown
+theme: minima
