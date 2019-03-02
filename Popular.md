@@ -19,6 +19,12 @@ title: Popular
 #### Procol Harum
 - [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
 
+#### Mark Knopfler
+- [Money for Nothing with Eric Clapton and Sting](https://youtu.be/6D6cw8Ob2sk)
+
+#### Queen
+- [Live Aid 1985](https://youtu.be/HktW217yGTw)
+
 #### Carly Simon
 - [Anticipation (1971)](https://youtu.be/PDJ_Mz8ftqI)
 - [That’s the Way I Always Heard It Should Be (1971)](https://youtu.be/Ux7HgO9QhAc)
