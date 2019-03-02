@@ -6,6 +6,15 @@ title: Popular
 #### The Beatles
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
 
+#### Eric Clapton
+- [Layla with Mark Knopfler (1997)](https://youtu.be/8ka-pi78q0I)
+- [Wonderful Tonight (Official Live Video)](https://youtu.be/vUSzL2leaFM)
+- [Tears in Heaven (2013)](https://youtu.be/VmLQes4tmtM)
+- [Wonderful Tonight (Live In San Diego With Special Guest JJ Cale)](https://youtu.be/KIzOxTCOc_0)
+
+#### Dire Straits
+- [Money for Nothing with Sting (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo)
+
 #### Bob Dylan
 - [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
 - [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
@@ -15,6 +24,11 @@ title: Popular
 
 #### Fleetwood Mac
 - [Go Your Own Way](https://youtu.be/qxa851vAJtI)
+
+#### George Harrison
+- [While My Guitar Gently Weeps with Eric Clapton (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw)
+- [While My Guitar Gently Weeps with Eric Clapton (1987)](https://youtu.be/i8rVI7AMKiY)
+- [Give Me Love (Give Me Peace On Earth) (1991)](https://youtu.be/EjHLxTGn--s)
 
 #### Procol Harum
 - [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
