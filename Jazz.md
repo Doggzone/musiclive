@@ -15,7 +15,6 @@ title: Jazz
 - [Love for sale, Live in Tokyo ‘63](https://youtu.be/ZaL7MhpArgI)
 - [That Old Feeling, Live in Tokyo ‘63](https://youtu.be/lbwZ_dLgvR0)
 - [Four Brothers, Live in Tokyo ‘63](https://youtu.be/Ac2lZFtpkms)
-- [Honeysuckle Rose, Live in Tokyo ‘63](https://youtu.be/4XH4Uzusrc0)
 - [Let’s Fall in Love, Live in Tokyo ‘63](https://youtu.be/U-FwEF1hU0o)
 - [You’d Be So Nice To Come Home To, Live in Tokyo ‘63](https://youtu.be/uUcZ9-ps4js)
 - [Tea for Two, Live in Tokyo ‘63](https://youtu.be/xKqFe-nYU7A)
