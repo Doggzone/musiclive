@@ -6,6 +6,15 @@ title: Jazz
 #### Art Blakey & the Jazz Messengers
 - [Moanin’](https://youtu.be/uKOoxgI_xfQ)
 
+#### Diana Krall
+- [Live in Montreal 1996](https://youtu.be/oFpt4Y0SlUQ)
+- [Newport Jazz Festival 1998](https://youtu.be/PNEVn9chS9Q)
+- [Newport Jazz Festival 1999](https://youtu.be/PXLMCMIGb0s)
+- [Live Rio de Janeiro 2008](https://youtu.be/V38OrWI1t6U)
+- [Festival de Jazz de San Sebastián 2008](https://youtu.be/rhrYxjsfREg)
+- [Live Festival de Jazz de Montreux 2010](https://youtu.be/Fv4-5rQDEMY)
+- [Live at North Sea Jazz Festival 2013](https://youtu.be/huircINOI5w)
+
 #### Helen Merrill
 - [You'd Be So Nice To Come Home To (1960)](https://youtu.be/rkybDxsdBaQ)
 
