@@ -22,6 +22,22 @@ title: Jazz
 #### Helen Merrill
 - [You'd Be So Nice To Come Home To (1960)](https://youtu.be/rkybDxsdBaQ)
 
+#### Andrea Motis Joan Chamorro Quintet & Scott Hamilton
+- [Basin Street Blues](https://youtu.be/YmKQOqUgFIM)
+- [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
+- [Summertime](https://youtu.be/UxIPVAPRBi4)
+- [Chega de saudade](https://youtu.be/2wp0XCub3ew)
+- [Meditaçao](https://youtu.be/mN5iLTA_tkA)
+- [Lullaby of Birdland](https://youtu.be/N7ta17oBv2w)
+- [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
+- [Crazy](https://youtu.be/O00B76tfK7U)
+- [Solitude](https://youtu.be/gAyb-nDit5w)
+- [All Too Soon](https://youtu.be/2LYINPAqZn0)
+- [Manha de Carnaval](https://youtu.be/eugPfAfqKmM)
+- [Besame mucho](https://youtu.be/It-t0YI0RyI)
+- [Rita Payés - Desafinado](https://youtu.be/h0BKwVJI8So)
+- [Alba Armengou - Triste](https://youtu.be/6knZkdvaNxs)
+
 #### Anita O'Day
 - [Thank for the Boogie Ride with Gene Krupa Orchestra 1942](https://youtu.be/1l_TiX4t12M)
 - [Let Me Off Town with Gene Krupa Orchestra 1942](https://youtu.be/p8yaW6BluwY)
