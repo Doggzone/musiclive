@@ -12,6 +12,7 @@ title: Popular
 - [Layla with Mark Knopfler (1997)](https://youtu.be/8ka-pi78q0I)
 - [Wonderful Tonight (Official Live Video)](https://youtu.be/vUSzL2leaFM)
 - [Wonderful Tonight (Live In San Diego With Special Guest JJ Cale) 2007](https://youtu.be/KIzOxTCOc_0)
+- [Tulsa Time with Sheryl Crow](https://youtu.be/oV2zv6sVD_o)
 - [Allman Brothers Band with Eric Clapton - Live At Beacon Theatre New York 2009](https://youtu.be/pb22MYqdugE)
 - [Tears in Heaven (2013)](https://youtu.be/VmLQes4tmtM)
 
@@ -24,9 +25,6 @@ title: Popular
 
 #### The Eagles
 - [Live at Capital Center in Maryland (1977)](https://www.youtube.com/watch?v=e2nwt5sJRVQ)
-
-#### Morgan James
-- [If You Don’t Know Me By Now](https://youtu.be/KiSoa6XSi5c)
 
 #### Fleetwood Mac
 - [Go Your Own Way](https://youtu.be/qxa851vAJtI)
