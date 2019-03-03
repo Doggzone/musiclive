@@ -34,6 +34,7 @@ title: Jazz
 - [Honeysuckle Rose, Live in Sweden 1963](https://youtu.be/BFwVtlc6CGE)
 - [Fly to the Moon, Live in Sweden 1963](https://youtu.be/v-mg9pGqo6Q)
 - [Green Dolphin Street, Live in Sweden 1963](https://youtu.be/Ac2lZFtpkms)
+- [Antibes Jazz Festival 1966](https://youtu.be/UCMjpIORHBY)
 - [Berlin Jazz Festival 1970](https://youtu.be/l0pwfb-AHtQ)
 - [It Don’t Mean a Thing at Ronnie Scott’s London](https://youtu.be/skewZW-Mzbk)
 - [At Ronnie Scott’s in 1985](https://youtu.be/GPjIA_YnpR4)
