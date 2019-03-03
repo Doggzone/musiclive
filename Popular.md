@@ -10,8 +10,9 @@ title: Popular
 #### Eric Clapton
 - [Layla with Mark Knopfler (1997)](https://youtu.be/8ka-pi78q0I)
 - [Wonderful Tonight (Official Live Video)](https://youtu.be/vUSzL2leaFM)
+- [Wonderful Tonight (Live In San Diego With Special Guest JJ Cale) 2007](https://youtu.be/KIzOxTCOc_0)
+- [Allman Brothers Band with Eric Clapton - Live At Beacon Theatre New York 2009](https://youtu.be/pb22MYqdugE)
 - [Tears in Heaven (2013)](https://youtu.be/VmLQes4tmtM)
-- [Wonderful Tonight (Live In San Diego With Special Guest JJ Cale)](https://youtu.be/KIzOxTCOc_0)
 
 #### Dire Straits
 - [Money for Nothing with Sting (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo)
