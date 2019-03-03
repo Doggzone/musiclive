@@ -37,6 +37,8 @@ title: Jazz
 - [Besame mucho](https://youtu.be/It-t0YI0RyI)
 - [Rita Payés - Desafinado](https://youtu.be/h0BKwVJI8So)
 - [Alba Armengou - Triste](https://youtu.be/6knZkdvaNxs)
+- [Moanin'](https://youtu.be/BIKhOEV_Gx0)
+- [I'm a Fool to Want You](https://youtu.be/UbZRjrTetIM)
 
 #### Anita O'Day
 - [Thank for the Boogie Ride with Gene Krupa Orchestra 1942](https://youtu.be/1l_TiX4t12M)
