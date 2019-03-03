@@ -18,7 +18,7 @@ title: Jazz
 #### Helen Merrill
 - [You'd Be So Nice To Come Home To (1960)](https://youtu.be/rkybDxsdBaQ)
 
-#### [Anira O'Day](https://en.wikipedia.org/wiki/Anita_O%27Day)
+#### Anita O'Day
 - [Thank for the Boogie Ride with Gene Krupa Orchestra 1942](https://youtu.be/1l_TiX4t12M)
 - [Let Me Off Town with Gene Krupa Orchestra 1942](https://youtu.be/p8yaW6BluwY)
 - [15 Minutes with Anita O’Day](https://youtu.be/oJo27hMi4EU)
