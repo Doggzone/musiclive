@@ -8,8 +8,11 @@ title: Popular
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
 
 #### Eric Clapton
+- [Montreux Jazz Festival (Switzerland, 1986)](https://youtu.be/MQrxeTD_BEM)
+- [Estadio River Plate de Buenos Aires, 1990](https://youtu.be/o_YM8TggJXw)
 - [Blues with Russell 1994/5](https://youtu.be/KP5Zn-onAk0)
 - [Layla with Mark Knopfler (1997)](https://youtu.be/8ka-pi78q0I)
+- [Yokohama, Japan (1999-11-24)](https://youtu.be/hwv6u6DfcEs)
 - [Wonderful Tonight (Official Live Video)](https://youtu.be/vUSzL2leaFM)
 - [Budokan, Tokyo, 2001](https://youtu.be/3FE70D5mRp0)
 - [Wonderful Tonight (Live In San Diego With Special Guest JJ Cale) 2007](https://youtu.be/KIzOxTCOc_0)
@@ -17,6 +20,8 @@ title: Popular
 - [Allman Brothers Band with Eric Clapton - Live At Beacon Theatre New York 2009](https://youtu.be/pb22MYqdugE)
 - [Tears in Heaven (2013)](https://youtu.be/VmLQes4tmtM)
 - [Baloise Session - Basel, Switzerland, 2013](https://youtu.be/Zkktyon361E)
+- [Budokan Hall, Tokyo, Japan (2016-04-15)](https://youtu.be/7yCNh7G1jdQ) Audience Recordings
+- [The Forum, LA (2017-09-18)](https://youtu.be/_XDnniQkBtg) Audience Recordings 
 
 #### Dire Straits
 - [Money for Nothing with Sting (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo)
