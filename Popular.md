@@ -16,6 +16,7 @@ title: Popular
 - [Tulsa Time with Sheryl Crow](https://youtu.be/oV2zv6sVD_o)
 - [Allman Brothers Band with Eric Clapton - Live At Beacon Theatre New York 2009](https://youtu.be/pb22MYqdugE)
 - [Tears in Heaven (2013)](https://youtu.be/VmLQes4tmtM)
+- [Baloise Session - Basel, Switzerland, 2013](https://youtu.be/Zkktyon361E)
 
 #### Dire Straits
 - [Money for Nothing with Sting (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo)
