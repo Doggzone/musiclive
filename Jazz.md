@@ -22,7 +22,7 @@ title: Jazz
 #### Helen Merrill
 - [You'd Be So Nice To Come Home To (1960)](https://youtu.be/rkybDxsdBaQ)
 
-#### Andrea Motis Joan Chamorro Quintet & Scott Hamilton
+#### Joan Chamorro Quintet & Scott Hamilton (Andrea Motis, Rita Payés & Alba Armengou)
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
 - [Summertime](https://youtu.be/UxIPVAPRBi4)
@@ -35,10 +35,15 @@ title: Jazz
 - [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [Manha de Carnaval](https://youtu.be/eugPfAfqKmM)
 - [Besame mucho](https://youtu.be/It-t0YI0RyI)
-- [Rita Payés - Desafinado](https://youtu.be/h0BKwVJI8So)
-- [Alba Armengou - Triste](https://youtu.be/6knZkdvaNxs)
+- [Desafinado](https://youtu.be/h0BKwVJI8So)
+- [Triste](https://youtu.be/6knZkdvaNxs)
 - [Moanin'](https://youtu.be/BIKhOEV_Gx0)
+- [I'm a Fool to Want You](https://youtu.be/Mdfd5ye7ry4)
 - [I'm a Fool to Want You](https://youtu.be/UbZRjrTetIM)
+- [Barcelona International Jazz Festival 2011](https://youtu.be/Vunw1SurRVc)
+- [50 Heineken Jazzaldia en San Sebastián (España) - 26-7-2015](https://youtu.be/ii8yclVoUQM)
+- [16th Tokyo Jazz Festival 2017](https://youtu.be/Jd09uTs0cbM)
+- [Catania Jazz, Teatro ABC, 8 novembre 2017](https://youtu.be/_WSowCJW9yw)
 
 #### Anita O'Day
 - [Thank for the Boogie Ride with Gene Krupa Orchestra 1942](https://youtu.be/1l_TiX4t12M)
