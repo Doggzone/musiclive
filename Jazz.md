@@ -43,7 +43,7 @@ title: Jazz
 - [Thelonious Monk in Oslo (15-04-1966)](https://youtu.be/RINHNEMtm_k)
 
 #### Andrea Motis Joan Chamorro Quintet & Scott Hamilton
-- [Basin Street Blues](https://youtu.be/YmKQOqUgFIM)
+- [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) with Ricard Gili
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
 - [Summertime](https://youtu.be/UxIPVAPRBi4)
 - [Chega de saudade](https://youtu.be/2wp0XCub3ew)
