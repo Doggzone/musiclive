@@ -1,4 +1,4 @@
-[Reflections](https://youtu.be/xW_D5HHkJnI)
+- [Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium
 
 - [Jazz on a Summer’s Day (1959)](https://youtu.be/Htwe0NBjq4c)
 - [Newport Jazz Festival 1962](https://youtu.be/ZUB72NfTQLM)
