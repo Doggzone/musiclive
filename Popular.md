@@ -3,6 +3,9 @@ layout: page
 title: Popular
 ---
 
+#### Jill Barber
+- [Live @ Joe's Pub NYC 9/25/2014](https://youtu.be/T7c817573eo)
+
 #### The Beatles
 - [Yesterday (1966)](https://youtu.be/4YWyFIzSeXI)
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
