@@ -3,9 +3,6 @@ layout: page
 title: Popular
 ---
 
-#### Jill Barber
-- [Live @ Joe's Pub NYC 9/25/2014](https://youtu.be/T7c817573eo)
-
 #### The Beatles
 - [Yesterday (1966)](https://youtu.be/4YWyFIzSeXI)
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
@@ -27,7 +24,7 @@ title: Popular
 - [The Forum, LA (2017-09-18)](https://youtu.be/_XDnniQkBtg) Audience Recordings 
 
 #### Dire Straits
-- [Money for Nothing with Sting (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo)
+- [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
 
 #### Bob Dylan
 - [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
@@ -40,15 +37,15 @@ title: Popular
 - [Go Your Own Way](https://youtu.be/qxa851vAJtI)
 
 #### George Harrison
-- [While My Guitar Gently Weeps with Eric Clapton (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw)
-- [While My Guitar Gently Weeps with Eric Clapton (1987)](https://youtu.be/i8rVI7AMKiY)
+- [While My Guitar Gently Weeps (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw) with Eric Clapton
+- [While My Guitar Gently Weeps (1987)](https://youtu.be/i8rVI7AMKiY) with Eric Clapton
 - [Give Me Love (Give Me Peace On Earth) (1991)](https://youtu.be/EjHLxTGn--s)
 
 #### Procol Harum
 - [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
 
 #### Mark Knopfler
-- [Money for Nothing with Eric Clapton and Sting](https://youtu.be/6D6cw8Ob2sk)
+- [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
 
 #### Queen
 - [Live Aid 1985](https://youtu.be/HktW217yGTw)
