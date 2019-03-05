@@ -6,6 +6,9 @@ title: Jazz
 #### Art Blakey & the Jazz Messengers
 - [Moanin’](https://youtu.be/uKOoxgI_xfQ)
 
+#### Dexter Gordon
+- [Dexter Gordon Denmark 1967](https://youtu.be/AfYsu3Zlbt8)
+
 #### Diana Krall
 - [Montreal 1996](https://youtu.be/oFpt4Y0SlUQ)
 - [Newport Jazz Festival 1998](https://youtu.be/PNEVn9chS9Q)
