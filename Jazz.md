@@ -16,9 +16,19 @@ title: Jazz
 #### Dexter Gordon
 - [Dexter Gordon Denmark 1967](https://youtu.be/AfYsu3Zlbt8)
 
+#### Jim Hall
+- [Im Getting Sentimental Over You](https://youtu.be/mdPvQwjpoeE)
+- [In A Sentimental Mood](https://youtu.be/cUWPl8EWuq8)
+- [My Funny Valentine](https://youtu.be/hZtuMZxXZN0)
+
 #### Billie Holiday
 - [New Orleans](https://youtu.be/m4jU8IQK5b0) with Louis Armstrong
 - [Don't Explain (Live 1958)](https://youtu.be/0MWRheQtvmA)
+
+#### Keith Jarrett
+- [Standards Trio](https://youtu.be/lBnwDTAoAC8)
+- [Over the Rainbow](https://youtu.be/AyLQGDIrGcI)
+- [Danny Boy](https://youtu.be/C6tIzxmPCQE)
 
 #### Diana Krall
 - [Montreal 1996](https://youtu.be/oFpt4Y0SlUQ)
@@ -38,6 +48,11 @@ title: Jazz
 
 #### Helen Merrill
 - [You'd Be So Nice To Come Home To (1960)](https://youtu.be/rkybDxsdBaQ)
+
+#### Pat Metheny
+- [Minuano(6/8)](https://youtu.be/z-B_KcGYVgw)
+- [Cinema Paradiso](https://youtu.be/qEwXcgwzIYE)
+- [The Sound of Water](https://youtu.be/fR-64Sdn_CM)
 
 #### Thelonious Monk
 - [Thelonious Monk in Oslo (15-04-1966)](https://youtu.be/RINHNEMtm_k)
@@ -85,6 +100,9 @@ title: Jazz
 - [Berlin Jazz Festival 1970](https://youtu.be/l0pwfb-AHtQ)
 - [It Don’t Mean a Thing at Ronnie Scott’s London](https://youtu.be/skewZW-Mzbk)
 - [At Ronnie Scott’s in 1985](https://youtu.be/GPjIA_YnpR4)
+
+#### Sonny Rollins
+- [The Bridge](https://youtu.be/ZIq5w-NogWA) with Jim Hall
 
 #### Annie Ross
 - [Twisted](https://youtu.be/IYnmSAtZuB0)
