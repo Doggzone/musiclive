@@ -3,6 +3,10 @@ layout: page
 title: Singer/Songwriter
 ---
 
+#### Bob Dylan
+- [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
+- [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
+
 #### Carly Simon
 - [Anticipation (1971)](https://youtu.be/PDJ_Mz8ftqI)
 - [That’s the Way I Always Heard It Should Be (1971)](https://youtu.be/Ux7HgO9QhAc)
