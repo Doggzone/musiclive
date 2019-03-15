@@ -52,6 +52,9 @@ title: Rock
 - [While My Guitar Gently Weeps (1987)](https://youtu.be/i8rVI7AMKiY) with Eric Clapton
 - [Give Me Love (Give Me Peace On Earth) (1991)](https://youtu.be/EjHLxTGn--s)
 
+#### Heart
+- [Fanatic Live from Caesars Colosseum](https://youtu.be/4GCN5qhc5yM) (2012)
+
 #### Procol Harum
 - [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
 
