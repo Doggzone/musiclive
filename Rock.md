@@ -4,7 +4,7 @@ title: Rock
 ---
 
 #### The Bangles
-- [Return to Bangleonia: Live in Concert]() (Full Concert at the Hollywood House of Blues in 2000)
+- [Return to Bangleonia: Live in Concert](https://youtu.be/peSRbbRex0Y) (Full Concert at the Hollywood House of Blues in 2000)
 
 #### The Beatles
 - [Yesterday (1966)](https://youtu.be/4YWyFIzSeXI)
