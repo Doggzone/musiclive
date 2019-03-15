@@ -58,6 +58,10 @@ title: Rock
 #### Mark Knopfler
 - [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
 
+#### The Pretenders
+- [Middle of the Road](https://youtu.be/cVry7uMud1o)
+- [Back on the Chain Gang](https://youtu.be/okvl-9svtS0)
+
 #### Queen
 - [Live Aid 1985](https://youtu.be/HktW217yGTw)
 
