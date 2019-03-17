@@ -11,12 +11,12 @@ title: Rock
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
 
 #### Chicago
-- [Does Anybody Really Know What Time It Is?](https://youtu.be/jgF_ycCmF18)
-- [Beginnings](https://youtu.be/pizRRft3_8Y)
-- [Ballet For A Girl In Buchannon / So Much To Say, So Much To Give](https://youtu.be/1t-h7EN6WTM)
-- [Colour My World / Make Me Smile](https://youtu.be/pKvNoC0SRoY)
-- [25 or 6 to 4](https://youtu.be/7uAUoz7jimg)
 - [Full Concert: Recorded Live: 7/21/1970 - Tanglewood (Lenox, MA)](https://youtu.be/_oAoSZ2y1cw)
+  - [Does Anybody Really Know What Time It Is?](https://youtu.be/jgF_ycCmF18)
+  - [Beginnings](https://youtu.be/pizRRft3_8Y)
+  - [Ballet For A Girl In Buchannon / So Much To Say, So Much To Give](https://youtu.be/1t-h7EN6WTM)
+  - [Colour My World / Make Me Smile](https://youtu.be/pKvNoC0SRoY)
+  - [25 or 6 to 4](https://youtu.be/7uAUoz7jimg)
 
 #### Eric Clapton
 - [Montreux Jazz Festival (Switzerland, 1986)](https://youtu.be/MQrxeTD_BEM)
