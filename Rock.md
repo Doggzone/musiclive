@@ -19,7 +19,9 @@ title: Rock
   - [25 or 6 to 4](https://youtu.be/7uAUoz7jimg)
 
 #### Eric Clapton
+- [Eric Clapton BBC TV Special 1977](https://youtu.be/466rT-dUaEM)
 - [Montreux Jazz Festival (Switzerland, 1986)](https://youtu.be/MQrxeTD_BEM)
+- [Concert Tokyo 1988 with Mark Knopfler](https://youtu.be/V8cYfdZJoD0)
 - [Estadio River Plate de Buenos Aires, 1990](https://youtu.be/o_YM8TggJXw)
 - [Blues with Russell 1994/5](https://youtu.be/KP5Zn-onAk0)
 - [Layla with Mark Knopfler (1997)](https://youtu.be/8ka-pi78q0I)
@@ -31,8 +33,12 @@ title: Rock
 - [Allman Brothers Band with Eric Clapton - Live At Beacon Theatre New York 2009](https://youtu.be/pb22MYqdugE)
 - [Tears in Heaven (2013)](https://youtu.be/VmLQes4tmtM)
 - [Baloise Session - Basel, Switzerland, 2013](https://youtu.be/Zkktyon361E)
+- [Eric Clapton at Wormsley Estate 25 July 2015 (Part 1)](https://youtu.be/X0iH2ZfUGik)
+- [Eric Clapton at Wormsley Estate 25 July 2015 (Part 2)](https://youtu.be/NTWGEG5NSTI)
 - [Budokan Hall, Tokyo, Japan (2016-04-15)](https://youtu.be/7yCNh7G1jdQ) Audience Recordings
+- [Budokan Hall, Tokyo, Japan (2016-04-19)](https://youtu.be/o1kqmDawCGA)
 - [The Forum, LA (2017-09-18)](https://youtu.be/_XDnniQkBtg) Audience Recordings 
+- [Clapton Addiction - Symphonic Clapton](https://youtu.be/cVHJpWp1wM8)
 
 #### Dire Straits
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
