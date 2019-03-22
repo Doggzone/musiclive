@@ -44,8 +44,10 @@ title: Rock
 - [Farewell Concert 1968](https://youtu.be/-_gC2V_nbK8)
 - [Stormy Monday (Royal Albert Hall 2005)](https://youtu.be/r8S7Nn6si0E)
 - [Born Under A Bad Sign (Royal Albert Hall 2005)](https://youtu.be/uEGVtbgYx2I)
+- [Crossroads (Royal Albert Hall 2005)](https://youtu.be/DES2KOq5SoE)
 - [Sitting On Top Of The World (Royal Albert Hall 2005)](https://youtu.be/64-mvAXJJj4)
 - [White Room (Royal Albert Hall 2005)](https://youtu.be/dCc00pX_pFA)
+- [Sunshine Of Your Love (Royal Albert Hall 2005)](https://youtu.be/cYYeM_t6b5c)
 
 #### Dire Straits
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
