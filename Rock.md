@@ -40,6 +40,10 @@ title: Rock
 - [The Forum, LA (2017-09-18)](https://youtu.be/_XDnniQkBtg) Audience Recordings 
 - [Clapton Addiction - Symphonic Clapton](https://youtu.be/cVHJpWp1wM8)
 
+#### Cream
+- [Farewell Concert 1968](https://youtu.be/-_gC2V_nbK8)
+- [Royal Albert Hall 2005](https://youtu.be/iF-pMingp6A)
+
 #### Dire Straits
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
 
