@@ -2,11 +2,15 @@
 
 ### The Joan Chamorro School
 #### Andrea Motis
+- [Moon River](https://youtu.be/IR5azxffjGg)
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
+- [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw)
 - [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
+- [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc)
+- [Lover Man](https://youtu.be/9y18UwdmPFc)
 - [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés)
 - [Summertime](https://youtu.be/UxIPVAPRBi4) (with Scott Hamilton)
 - [I Fall in Love Too Easily](https://youtu.be/bo8og3xw-Ys) (with Scott Hamilton)
@@ -14,6 +18,8 @@
 - [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton)
 - [Meditaçao](https://youtu.be/mN5iLTA_tkA) (with Scott Hamilton)
 - [Solitude](https://youtu.be/gAyb-nDit5w)
+- [He's Funny That Way](https://youtu.be/MfGKntocz1c) (Music Video)
+- [He's Funny That Way](https://youtu.be/yEGxhGwHPdI) (Live)
 - [Hallelujah](https://youtu.be/ygWVcstXdqs)
 - [Crazy](https://youtu.be/O00B76tfK7U)
 - [Feeling Good](https://youtu.be/y2kFYzTFCRo)
@@ -46,6 +52,11 @@
 
 #### Eva Fernandez
 - [After You've Gone](https://youtu.be/OGzWq-EqIhk)
+
+#### Èlia Bastida
+- [Misty](https://youtu.be/FWesPZy0G1g)
+- [You'd Be So Nice To Come Home To](https://youtu.be/bkveUFzeWtI)
+- [Autumn in New York](https://youtu.be/ky_0tvmW2oQ)
 
 ### Postmodern Jukebox
 - [All About That Bass](https://youtu.be/aLnZ1NQm2uk)
