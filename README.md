@@ -5,6 +5,7 @@
 - [Moon River](https://youtu.be/IR5azxffjGg) | [At Jamboree](https://youtu.be/x9y4KbJVsYg) | [On Stage](https://youtu.be/7QpsXPdqak4)
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
+- [L.O.V.E.](https://youtu.be/BhpCXXV7ggQ)
 - [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw)
 - [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
@@ -25,9 +26,11 @@
 - [Feeling Good](https://youtu.be/y2kFYzTFCRo)
 - [Manha de Carnaval](https://youtu.be/eugPfAfqKmM)
 - [Besame mucho](https://youtu.be/It-t0YI0RyI)
+- [TEDxYouth@Madrid 2011](https://youtu.be/VNrXEXG6q3I): Our Love Is Here To Stay, Desafinado, Don't Talk About Me When I'm Gone.
 - [50 Heineken Jazzaldia en San Sebastián (España) - 26-7-2015](https://youtu.be/ii8yclVoUQM)
 - [16th Tokyo Jazz Festival 2017](https://youtu.be/Jd09uTs0cbM)
 - [Catania Jazz, Teatro ABC, 8 novembre 2017](https://youtu.be/_WSowCJW9yw)
+- [Box Barcelona Music Sessions](https://youtu.be/7RkurjSXmRU)
 
 #### Rita Payés
 - [I'm a Fool to Want You](https://youtu.be/Mdfd5ye7ry4)
