@@ -38,6 +38,7 @@
 - [Outra vez](https://youtu.be/t_lLjycLWVo)
 - [Àguas de março](https://youtu.be/EazJHMFvQ3s) (with Rita Payés)
 - [I've Got a Date with a Dream](https://youtu.be/uXXUVtVh7Jc)
+- [Embraceable You](https://youtu.be/D-g7u6fGcOY)
 - [Shiny Stockings](https://youtu.be/VlVwowQdUzQ)
 - [I Feel Pretty](https://youtu.be/kP_z6NFJXBU)
 
