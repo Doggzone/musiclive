@@ -12,6 +12,7 @@
 - [Moon River](https://youtu.be/x9y4KbJVsYg) 
 - [On the Sunny Side of the Street](https://youtu.be/eQNFh27eyDM)
 - [Moon River](https://youtu.be/iKlmPTAtmfI)
+- [Basin Street Blues](https://youtu.be/XwRpQ-xn1X0)
 - [My Funny Valentine](https://youtu.be/y0qpyFL86gQ)
 - [Lullaby of Birdland](https://youtu.be/hNwnleBzBI4)
 - [Careless Love](https://youtu.be/d_yOwbA4P3M)
