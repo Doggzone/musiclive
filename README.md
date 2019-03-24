@@ -34,8 +34,10 @@
 
 #### Alba Armengou
 - [Triste](https://youtu.be/6knZkdvaNxs)
+- [Triste](https://youtu.be/xiJlAE2sfQc)
 - [Outra vez](https://youtu.be/t_lLjycLWVo)
 - [Àguas de março](https://youtu.be/EazJHMFvQ3s) (with Rita Payés)
+- [I've Got a Date with a Dream](https://youtu.be/uXXUVtVh7Jc)
 - [Shiny Stockings](https://youtu.be/VlVwowQdUzQ)
 - [I Feel Pretty](https://youtu.be/kP_z6NFJXBU)
 
