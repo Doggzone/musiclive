@@ -2,7 +2,7 @@
 - [Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium
 
 ### The Joan Chamorro School
-#### Andrea Motis - Joan Chamorro Quintet with Scott Hamilton
+#### Andrea Motis
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
