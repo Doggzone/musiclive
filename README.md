@@ -6,6 +6,7 @@
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
+- [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
 - [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés)
 - [Summertime](https://youtu.be/UxIPVAPRBi4) (with Scott Hamilton)
