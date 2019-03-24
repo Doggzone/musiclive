@@ -4,9 +4,9 @@
 #### Andrea Motis
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
+- [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
-- [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés)
 - [Summertime](https://youtu.be/UxIPVAPRBi4) (with Scott Hamilton)
 - [I Fall in Love Too Easily](https://youtu.be/bo8og3xw-Ys) (with Scott Hamilton)
