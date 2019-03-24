@@ -2,7 +2,7 @@
 
 ### The Joan Chamorro School
 #### Andrea Motis
-- [Moon River](https://youtu.be/IR5azxffjGg), [[At Jamboree]](https://youtu.be/x9y4KbJVsYg), [[On Stage]](https://youtu.be/7QpsXPdqak4)
+- [Moon River](https://youtu.be/IR5azxffjGg) | [At Jamboree](https://youtu.be/x9y4KbJVsYg) | [On Stage](https://youtu.be/7QpsXPdqak4)
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
 - [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw)
