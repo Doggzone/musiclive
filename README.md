@@ -1,5 +1,4 @@
-### Celebration
-- [Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium
+[Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium
 
 ### The Joan Chamorro School
 #### Andrea Motis
