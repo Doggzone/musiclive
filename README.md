@@ -1,23 +1,26 @@
 [Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium
 
 ### The Joan Chamorro School
+- [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
+
 #### Andrea Motis
 - [Moon River](https://youtu.be/IR5azxffjGg) - [At Jamboree](https://youtu.be/x9y4KbJVsYg) - [On Stage](https://youtu.be/7QpsXPdqak4)
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
 - [L.O.V.E.](https://youtu.be/BhpCXXV7ggQ)
 - [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw)
-- [All Too Soon](https://youtu.be/2LYINPAqZn0)
-- [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
+- [My Funny Valentine](https://youtu.be/y0qpyFL86gQ)
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
-- [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc)
-- [Lover Man](https://youtu.be/9y18UwdmPFc)
-- [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés)
+- [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
+- [All Too Soon](https://youtu.be/2LYINPAqZn0)
 - [Summertime](https://youtu.be/UxIPVAPRBi4) (with Scott Hamilton)
 - [I Fall in Love Too Easily](https://youtu.be/bo8og3xw-Ys) (with Scott Hamilton)
 - [Lullaby of Birdland](https://youtu.be/N7ta17oBv2w) (with Scott Hamilton)
 - [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton)
 - [Meditaçao](https://youtu.be/mN5iLTA_tkA) (with Scott Hamilton)
+- [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés)
+- [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc)
+- [Lover Man](https://youtu.be/9y18UwdmPFc)
 - [Solitude](https://youtu.be/gAyb-nDit5w)
 - [He's Funny That Way](https://youtu.be/MfGKntocz1c) (Music Video)
 - [He's Funny That Way](https://youtu.be/yEGxhGwHPdI) (Live)
