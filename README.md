@@ -15,11 +15,12 @@
 - [Moon River](https://youtu.be/IR5azxffjGg), December 30, 2011
 - [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc), Apr 11, 2012
 - [Lover Man](https://youtu.be/9y18UwdmPFc), Apr 11, 2012
-- [Moon River](https://youtu.be/x9y4KbJVsYg) at Jamboree, Sep 30, 2012
+- [My Baby Just Cares for Me](https://youtu.be/gjg4Hmta34Y) at Jamboree, Sep 30, 2012
 - [Fine and Mellow](https://youtu.be/jIEmTznQyIE) at Jamboree, Sep 30, 2012
-- [Solitude](https://youtu.be/UhqmMfcOBOo) at Jamboree, Sep 30, 2012
 - [On the Sunny Side of the Street](https://youtu.be/eQNFh27eyDM) at Jamboree, Sep 30, 2012
-- I Can't Believe You're in Love with Me at Jamboree, Sep 30, 2012
+- [Solitude](https://youtu.be/UhqmMfcOBOo) at Jamboree, Sep 30, 2012
+- [Moon River](https://youtu.be/x9y4KbJVsYg) at Jamboree, Sep 30, 2012
+- [I Can't Believe You're in Love with Me](https://youtu.be/5Qo29AtjeLc) at Jamboree, Sep 30, 2012
 - [Georgia on My Mind](https://youtu.be/n7FllifszSA) at Jamboree, Sep 30, 2012
 - [Hot House](https://youtu.be/FUmK4HBpkNM) at Jamboree, Sep 30, 2012
 - [Please Don't Talk About Me When I'm Gone](https://youtu.be/Y77EmZkZMfs) at Jamboree, Sep 30, 2012
@@ -41,6 +42,7 @@
 - [Corcovado](https://youtu.be/Zz7Zq2pyBxI) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
 - [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
 - [Solitude](https://youtu.be/gAyb-nDit5w), Jun 1, 2013
+- [My Baby Just Cares for Me](https://youtu.be/sWsvwqHvL-M) (2014)
 - [Manha de Carnaval](https://youtu.be/eugPfAfqKmM), 50 Heineken Jazzaldia, Jul 26, 2015
 - [Besame mucho](https://youtu.be/It-t0YI0RyI), 50 Heineken Jazzaldia, Jul 26, 2015
 - [50 Heineken Jazzaldia en San Sebastián (España) - 26-7-2015](https://youtu.be/ii8yclVoUQM)
