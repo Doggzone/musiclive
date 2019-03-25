@@ -43,6 +43,7 @@
 - [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
 - [Solitude](https://youtu.be/gAyb-nDit5w), Jun 1, 2013
 - [My Baby Just Cares for Me](https://youtu.be/sWsvwqHvL-M) (2014)
+- [Alone Together](https://youtu.be/-XYK9fhqc3c) with Dick Oatts (2015)
 - [Manha de Carnaval](https://youtu.be/eugPfAfqKmM), 50 Heineken Jazzaldia, Jul 26, 2015
 - [Besame mucho](https://youtu.be/It-t0YI0RyI), 50 Heineken Jazzaldia, Jul 26, 2015
 - [50 Heineken Jazzaldia en San Sebastián (España) - 26-7-2015](https://youtu.be/ii8yclVoUQM)
