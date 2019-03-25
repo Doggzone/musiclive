@@ -11,7 +11,7 @@
 - [All Too Soon](https://youtu.be/2LYINPAqZn0) at Barcelona International Jazz Festival, Nov 30, 2011
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4) at Barcelona International Jazz Festival 2011
 - [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw) at Barcelona International Jazz Festival 2011
-- [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
+- [The Nearness of You](https://youtu.be/wbZiHIJI9U8) (2011)
 - [Moon River](https://youtu.be/IR5azxffjGg), December 30, 2011
 - [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc), Apr 11, 2012
 - [Lover Man](https://youtu.be/9y18UwdmPFc), Apr 11, 2012
