@@ -14,15 +14,15 @@
 - [Solitude](https://youtu.be/UhqmMfcOBOo)
 - [On the Sunny Side of the Street](https://youtu.be/eQNFh27eyDM)
 - I Can't Believe You're in Love with Me
-- [Moon River](https://youtu.be/iKlmPTAtmfI)
 - [Georgia on My Mind](https://youtu.be/n7FllifszSA)
 - [Hot House](https://youtu.be/FUmK4HBpkNM)
 - [Please Don't Talk About Me When I'm Gone](https://youtu.be/Y77EmZkZMfs)
 - [Basin Street Blues](https://youtu.be/XwRpQ-xn1X0)
-- [My Funny Valentine](https://youtu.be/y0qpyFL86gQ)
-- [Lullaby of Birdland](https://youtu.be/hNwnleBzBI4)
-- [Chega de saudade](https://youtu.be/KiZ0wQA3wHo)
-- [Careless Love](https://youtu.be/d_yOwbA4P3M)
+- [My Funny Valentine](https://youtu.be/y0qpyFL86gQ) at Jamboree, Dec 23, 2012
+- [Lullaby of Birdland](https://youtu.be/hNwnleBzBI4) at Jamboree, Dec 23, 2012
+- [Moon River](https://youtu.be/iKlmPTAtmfI) at Jamboree, Dec 23, 2012
+- [Chega de saudade](https://youtu.be/KiZ0wQA3wHo) at Jamboree, Dec 23, 2012
+- [Careless Love](https://youtu.be/d_yOwbA4P3M) at Jamboree, Dec 23, 2012
 - [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
 - [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
 - [All Too Soon](https://youtu.be/2LYINPAqZn0)
