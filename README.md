@@ -100,3 +100,6 @@
 - [Jazz at the Philharmonic 1967](https://youtu.be/k-WwhDh894g)
 - [Newport Jazz Festival 1962](https://youtu.be/ZUB72NfTQLM)
 - [Jazz on a Summer’s Day (1959)](https://youtu.be/Htwe0NBjq4c)
+
+### Victor Borge
+- [The Best of Victor Borge](https://youtu.be/f00VEflQ5VQ)
