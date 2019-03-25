@@ -4,53 +4,52 @@
 - [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
 
 #### Andrea Motis
-- [Moon River](https://youtu.be/IR5azxffjGg)
-- [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili)
-- [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY)
-- [L.O.V.E.](https://youtu.be/BhpCXXV7ggQ)
-- [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw)
-- [Moon River](https://youtu.be/x9y4KbJVsYg) 
-- [Fine and Mellow](https://youtu.be/jIEmTznQyIE)
-- [Solitude](https://youtu.be/UhqmMfcOBOo)
-- [On the Sunny Side of the Street](https://youtu.be/eQNFh27eyDM)
-- I Can't Believe You're in Love with Me
-- [Georgia on My Mind](https://youtu.be/n7FllifszSA)
-- [Hot House](https://youtu.be/FUmK4HBpkNM)
-- [Please Don't Talk About Me When I'm Gone](https://youtu.be/Y77EmZkZMfs)
-- [Basin Street Blues](https://youtu.be/XwRpQ-xn1X0)
+- [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili) at Casa Fuster, Barcelona, Jun 21, 2009
+- [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY), May 2010
+- [L.O.V.E.](https://youtu.be/BhpCXXV7ggQ), May 2010
+- [TEDxYouth@Madrid 2011](https://youtu.be/VNrXEXG6q3I): Our Love Is Here To Stay, Desafinado, Don't Talk About Me When I'm Gone.
+- [All Too Soon](https://youtu.be/2LYINPAqZn0) at Barcelona International Jazz Festival, Nov 30, 2011
+- [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4) at Barcelona International Jazz Festival 2011
+- [Twenty Four Hours A Day](https://youtu.be/RhpnC-BacYw) at Barcelona International Jazz Festival 2011
+- [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
+- [Moon River](https://youtu.be/IR5azxffjGg), December 30, 2011
+- [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc), Apr 11, 2012
+- [Lover Man](https://youtu.be/9y18UwdmPFc), Apr 11, 2012
+- [Moon River](https://youtu.be/x9y4KbJVsYg) at Jamboree, Sep 30, 2012
+- [Fine and Mellow](https://youtu.be/jIEmTznQyIE) at Jamboree, Sep 30, 2012
+- [Solitude](https://youtu.be/UhqmMfcOBOo) at Jamboree, Sep 30, 2012
+- [On the Sunny Side of the Street](https://youtu.be/eQNFh27eyDM) at Jamboree, Sep 30, 2012
+- I Can't Believe You're in Love with Me at Jamboree, Sep 30, 2012
+- [Georgia on My Mind](https://youtu.be/n7FllifszSA) at Jamboree, Sep 30, 2012
+- [Hot House](https://youtu.be/FUmK4HBpkNM) at Jamboree, Sep 30, 2012
+- [Please Don't Talk About Me When I'm Gone](https://youtu.be/Y77EmZkZMfs) at Jamboree, Sep 30, 2012
+- [Basin Street Blues](https://youtu.be/XwRpQ-xn1X0) at Jamboree, Sep 30, 2012
 - [My Funny Valentine](https://youtu.be/y0qpyFL86gQ) at Jamboree, Dec 23, 2012
 - [Lullaby of Birdland](https://youtu.be/hNwnleBzBI4) at Jamboree, Dec 23, 2012
 - [Moon River](https://youtu.be/iKlmPTAtmfI) at Jamboree, Dec 23, 2012
 - [Chega de saudade](https://youtu.be/KiZ0wQA3wHo) at Jamboree, Dec 23, 2012
 - [Careless Love](https://youtu.be/d_yOwbA4P3M) at Jamboree, Dec 23, 2012
-- [Someday My Prince Will Come](https://youtu.be/HSCaGOvbPL4)
-- [The Nearness of You](https://youtu.be/wbZiHIJI9U8)
-- [All Too Soon](https://youtu.be/2LYINPAqZn0)
-- [Summertime](https://youtu.be/UxIPVAPRBi4) (with Scott Hamilton)
-- [I Fall in Love Too Easily](https://youtu.be/bo8og3xw-Ys) (with Scott Hamilton)
-- [Lullaby of Birdland](https://youtu.be/N7ta17oBv2w) (with Scott Hamilton)
-- [Moody's Mood for Love](https://youtu.be/QWxriapsDes) (with Scott Hamilton)
-- [This Year's Kisses](https://youtu.be/jnuR8HQXCw0) (with Scott Hamilton)
-- [My Baby Just Cares for Me](https://youtu.be/eutJd3g77lM) (with Scott Hamilton)
-- [Corcovado](https://youtu.be/Zz7Zq2pyBxI)
-- [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton)
-- [Meditaçao](https://youtu.be/mN5iLTA_tkA) (with Scott Hamilton)
-- [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés)
-- [Love Me or Leave Me](https://youtu.be/USTs1FgN-Mc)
-- [Lover Man](https://youtu.be/9y18UwdmPFc)
-- [Solitude](https://youtu.be/gAyb-nDit5w)
-- [He's Funny That Way](https://youtu.be/MfGKntocz1c) (Music Video)
-- [He's Funny That Way](https://youtu.be/yEGxhGwHPdI) (Live)
-- [Hallelujah](https://youtu.be/ygWVcstXdqs)
-- [Crazy](https://youtu.be/O00B76tfK7U)
-- [Feeling Good](https://youtu.be/y2kFYzTFCRo)
-- [Manha de Carnaval](https://youtu.be/eugPfAfqKmM)
-- [Besame mucho](https://youtu.be/It-t0YI0RyI)
-- [TEDxYouth@Madrid 2011](https://youtu.be/VNrXEXG6q3I): Our Love Is Here To Stay, Desafinado, Don't Talk About Me When I'm Gone.
+- [Hallelujah](https://youtu.be/ygWVcstXdqs) (2012)
+- [Feeling Good](https://youtu.be/y2kFYzTFCRo) (2012)
+- [Summertime](https://youtu.be/UxIPVAPRBi4) (with Scott Hamilton) at Jamboree
+- [This Year's Kisses](https://youtu.be/jnuR8HQXCw0) (with Scott Hamilton) at Jamboree
+- [Meditaçao](https://youtu.be/mN5iLTA_tkA) (with Scott Hamilton) at Jamboree
+- [I Fall in Love Too Easily](https://youtu.be/bo8og3xw-Ys) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
+- [Lullaby of Birdland](https://youtu.be/N7ta17oBv2w) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
+- [Moody's Mood for Love](https://youtu.be/QWxriapsDes) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
+- [My Baby Just Cares for Me](https://youtu.be/eutJd3g77lM) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
+- [Corcovado](https://youtu.be/Zz7Zq2pyBxI) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
+- [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
+- [Solitude](https://youtu.be/gAyb-nDit5w), Jun 1, 2013
+- [Manha de Carnaval](https://youtu.be/eugPfAfqKmM), 50 Heineken Jazzaldia, Jul 26, 2015
+- [Besame mucho](https://youtu.be/It-t0YI0RyI), 50 Heineken Jazzaldia, Jul 26, 2015
 - [50 Heineken Jazzaldia en San Sebastián (España) - 26-7-2015](https://youtu.be/ii8yclVoUQM)
+- [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés), Dec 19, 2015
+- [He's Funny That Way](https://youtu.be/yEGxhGwHPdI) [[Music Video]](https://youtu.be/MfGKntocz1c) (2016) 
+- [Crazy](https://youtu.be/O00B76tfK7U), Aug 2017
 - [16th Tokyo Jazz Festival 2017](https://youtu.be/Jd09uTs0cbM)
 - [Catania Jazz, Teatro ABC, 8 novembre 2017](https://youtu.be/_WSowCJW9yw)
-- [Box Barcelona Music Sessions](https://youtu.be/7RkurjSXmRU)
+- [Box Barcelona Music Sessions](https://youtu.be/7RkurjSXmRU) (2018)
 
 #### Rita Payés
 - [I'm a Fool to Want You](https://youtu.be/Mdfd5ye7ry4)
