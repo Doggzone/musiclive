@@ -1,5 +1,7 @@
 [Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium
 
+[My Way - Drummer Steals The Show](https://youtu.be/a9kPfelTEds)
+
 ### The Joan Chamorro School
 - [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
 
