@@ -17,6 +17,7 @@ title: Rock
   - [Ballet For A Girl In Buchannon / So Much To Say, So Much To Give](https://youtu.be/1t-h7EN6WTM)
   - [Colour My World / Make Me Smile](https://youtu.be/pKvNoC0SRoY)
   - [25 or 6 to 4](https://youtu.be/7uAUoz7jimg)
+- [At the Arie Crown Theater in Chicago, Nov 1972](https://youtu.be/taeQZjUJ_0A)
 
 #### Eric Clapton
 - [Eric Clapton BBC TV Special 1977](https://youtu.be/466rT-dUaEM)
