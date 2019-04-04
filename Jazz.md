@@ -13,8 +13,18 @@ title: Jazz
 - [Autumn Leaves / What's New / Moonlight in Vermont](https://youtu.be/pc6CWfBgIt8) with Wynton Kelly
 - [Hackensack](https://youtu.be/beCGdmrP8Xc) with Oscar Peterson
 
+#### Bill Evans
+- [Live '64 '75](https://youtu.be/uco5FNbjqv0)
+
+#### Stan Getz & Chet Baker
+- [In Stockholm 1983](https://youtu.be/OqQWVrfjatA)
+
+#### Astrud Gilberto
+- [The Girl From Ipanema (1964)](https://youtu.be/UJkxFhFRFDA)
+- [Corcovado](https://youtu.be/9srw5FRm5eA)
+
 #### Dexter Gordon
-- [Dexter Gordon Denmark 1967](https://youtu.be/AfYsu3Zlbt8)
+- [Dexter Gordon Denmark 1967](https://youtu.be/uco5FNbjqv0)
 
 #### Jim Hall
 - [Im Getting Sentimental Over You](https://youtu.be/mdPvQwjpoeE)
