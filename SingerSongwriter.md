@@ -7,6 +7,9 @@ title: Singer/Songwriter
 - [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
 - [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
 
+#### Norah Jones
+- [Concert Privé](https://youtu.be/yCNOTf9xbbY)
+
 #### Carole King
 - [It's Too Late](https://youtu.be/QsKdxzKz_lw)
 - [It's Too Late](https://youtu.be/YkOik48rm-Q) (2005)
