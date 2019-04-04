@@ -44,6 +44,8 @@
 - [Corcovado](https://youtu.be/Zz7Zq2pyBxI) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
 - [Chega de saudade](https://youtu.be/2wp0XCub3ew) (with Scott Hamilton) (with Scott Hamilton) at Jamboree, Apr 13-14, 2013
 - [Solitude](https://youtu.be/gAyb-nDit5w), Jun 1, 2013
+- [Summertime](https://youtu.be/cwtCx6YluWg),  Sep 9, 2013
+- [El Siglo de Sant Cugat](https://youtu.be/1_UNtVPYe7A), Dec 27, 2013
 - [My Baby Just Cares for Me](https://youtu.be/sWsvwqHvL-M) (2014)
 - [Alone Together](https://youtu.be/-XYK9fhqc3c) with Dick Oatts (2015)
 - [Manha de Carnaval](https://youtu.be/eugPfAfqKmM), 50 Heineken Jazzaldia, Jul 26, 2015
@@ -66,6 +68,11 @@
 - [Stars Fell on Alabama](https://youtu.be/zIP42fLAUew) (with Andrea Motis & Scott Hamilton)
 - [Skylark](https://youtu.be/lWUepoMNRAc)
 - [Night and Day](https://youtu.be/7zIa__k9un0) (with Andrea Motis & Eva Fernandez)
+
+#### Magali Datzira
+- [What a Little Moonlight Can Do](https://youtu.be/YrMDTNR_mCw)
+- [On a Sentimental Side](https://youtu.be/2PLdtBseJmQ)
+- [Nature Boy](https://youtu.be/RluSPE6z-E4)
 
 #### Alba Armengou
 - [Triste](https://youtu.be/6knZkdvaNxs)
