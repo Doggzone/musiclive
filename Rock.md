@@ -85,6 +85,9 @@ title: Rock
 - [Middle of the Road](https://youtu.be/cVry7uMud1o)
 - [Back on the Chain Gang](https://youtu.be/okvl-9svtS0)
 
+#### Linda Ronstadt
+- [Desperado](https://youtu.be/wpbiCVmjfrU)
+
 #### Queen
 - [Live Aid 1985](https://youtu.be/HktW217yGTw)
 
