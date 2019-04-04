@@ -36,6 +36,7 @@ title: Rock
 - [Baloise Session - Basel, Switzerland, 2013](https://youtu.be/Zkktyon361E)
 - [Eric Clapton at Wormsley Estate 25 July 2015 (Part 1)](https://youtu.be/X0iH2ZfUGik)
 - [Eric Clapton at Wormsley Estate 25 July 2015 (Part 2)](https://youtu.be/NTWGEG5NSTI)
+- [Budokan Hall, Tokyo, Japan (2016-04-13)](https://youtu.be/JZKCmChXJoM)
 - [Budokan Hall, Tokyo, Japan (2016-04-15)](https://youtu.be/7yCNh7G1jdQ) Audience Recordings
 - [Budokan Hall, Tokyo, Japan (2016-04-19)](https://youtu.be/o1kqmDawCGA)
 - [The Forum, LA (2017-09-18)](https://youtu.be/_XDnniQkBtg) Audience Recordings 
