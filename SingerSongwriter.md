@@ -20,6 +20,10 @@ title: Singer/Songwriter
 - [Country Road/Fire And Rain](https://youtu.be/A6z4JfJcs1E)
 - [You Can Close Your Eyes](https://youtu.be/RubqFRAmKM4)
 
+#### Katie Melua
+- [Fields of Gold](https://youtu.be/hPvFxbnPr1Q)
+- [Diamonds are Forever](https://youtu.be/ZOG3lUM2ZtY)
+
 #### Joni Mitchell
 - [Both Sides, Now](https://youtu.be/4NdsnFZm0X4)
 - [Big Yellow Taxi](https://youtu.be/XJIuP7zEVeM)
