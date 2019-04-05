@@ -5,6 +5,27 @@
 ### The Joan Chamorro School
 - [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
 
+#### Magali Datzira
+- [What a Little Moonlight Can Do](https://youtu.be/YrMDTNR_mCw)
+- [Tenderly](https://youtu.be/Oc9HsXAIdiY)
+- [Night and Day](https://youtu.be/7zIa__k9un0)
+- [On a Sentimental Side](https://youtu.be/2PLdtBseJmQ)
+- [Nature Boy](https://youtu.be/RluSPE6z-E4)
+- [Lady Sings the Blues](https://youtu.be/LK0JPlpBYbo)
+- [Unchain My Heart](https://youtu.be/9XPjfrUIzzA)
+- [Hi-Fly](https://youtu.be/qrfoYWqnYQs)
+
+#### Rita Payés
+- [I'm a Fool to Want You](https://youtu.be/Mdfd5ye7ry4)
+- [I'm a Fool to Want You](https://youtu.be/UbZRjrTetIM)
+- [Desafinado](https://youtu.be/h0BKwVJI8So) (with Andrea Motis & Scott Hamilton)
+- [Moanin'](https://youtu.be/BIKhOEV_Gx0) (with Andrea Motis & Scott Hamilton)
+- [Watch What Happens](https://youtu.be/Cu2TjqV8ezA) (with Andrea Motis & Scott Hamilton)
+- [My Melancholy Baby](https://youtu.be/ZozdUV4ARUU) (with Andrea Motis & Scott Hamilton)
+- [Stars Fell on Alabama](https://youtu.be/zIP42fLAUew) (with Andrea Motis & Scott Hamilton)
+- [Skylark](https://youtu.be/lWUepoMNRAc)
+- [Night and Day](https://youtu.be/7zIa__k9un0) (with Andrea Motis & Eva Fernandez)
+
 #### Andrea Motis
 - [Basin Street Blues](https://youtu.be/YmKQOqUgFIM) (with Ricard Gili) at Casa Fuster, Barcelona, Jun 21, 2009
 - [Dream a Little Dream of Me](https://youtu.be/aFEhKu286RY), May 2010
@@ -57,22 +78,6 @@
 - [16th Tokyo Jazz Festival 2017](https://youtu.be/Jd09uTs0cbM)
 - [Catania Jazz, Teatro ABC, 8 novembre 2017](https://youtu.be/_WSowCJW9yw)
 - [Box Barcelona Music Sessions](https://youtu.be/7RkurjSXmRU) (2018)
-
-#### Rita Payés
-- [I'm a Fool to Want You](https://youtu.be/Mdfd5ye7ry4)
-- [I'm a Fool to Want You](https://youtu.be/UbZRjrTetIM)
-- [Desafinado](https://youtu.be/h0BKwVJI8So) (with Andrea Motis & Scott Hamilton)
-- [Moanin'](https://youtu.be/BIKhOEV_Gx0) (with Andrea Motis & Scott Hamilton)
-- [Watch What Happens](https://youtu.be/Cu2TjqV8ezA) (with Andrea Motis & Scott Hamilton)
-- [My Melancholy Baby](https://youtu.be/ZozdUV4ARUU) (with Andrea Motis & Scott Hamilton)
-- [Stars Fell on Alabama](https://youtu.be/zIP42fLAUew) (with Andrea Motis & Scott Hamilton)
-- [Skylark](https://youtu.be/lWUepoMNRAc)
-- [Night and Day](https://youtu.be/7zIa__k9un0) (with Andrea Motis & Eva Fernandez)
-
-#### Magali Datzira
-- [What a Little Moonlight Can Do](https://youtu.be/YrMDTNR_mCw)
-- [On a Sentimental Side](https://youtu.be/2PLdtBseJmQ)
-- [Nature Boy](https://youtu.be/RluSPE6z-E4)
 
 #### Alba Armengou
 - [Triste](https://youtu.be/6knZkdvaNxs)
