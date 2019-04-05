@@ -4,11 +4,13 @@
 
 ### The Joan Chamorro School
 - [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
+- [On a Sentimental Side - What is This Thing Called Love - Stars Fell on Alabama - I Remember April - East of the Moon, West of the Sun](https://youtu.be/dJ_26ehOFTo)
 
-#### Magali Datzira
+#### Magalí Datzira
 - [What a Little Moonlight Can Do](https://youtu.be/YrMDTNR_mCw)
 - [Tenderly](https://youtu.be/Oc9HsXAIdiY)
 - [Night and Day](https://youtu.be/7zIa__k9un0)
+- [Softly as in a Morning Sunrise](https://youtu.be/yfmbpeaSlNU)
 - [On a Sentimental Side](https://youtu.be/2PLdtBseJmQ)
 - [Nature Boy](https://youtu.be/RluSPE6z-E4)
 - [Lady Sings the Blues](https://youtu.be/LK0JPlpBYbo)
@@ -91,6 +93,7 @@
 
 #### Eva Fernandez
 - [After You've Gone](https://youtu.be/OGzWq-EqIhk)
+- [Geogia On My Mind](https://youtu.be/rRWZxFXXBCE)
 
 #### Èlia Bastida
 - [Misty](https://youtu.be/FWesPZy0G1g)
