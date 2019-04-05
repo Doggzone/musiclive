@@ -16,6 +16,7 @@
 - [Lady Sings the Blues](https://youtu.be/LK0JPlpBYbo)
 - [Unchain My Heart](https://youtu.be/9XPjfrUIzzA)
 - [Hi-Fly](https://youtu.be/qrfoYWqnYQs)
+- [Sometimes I'm Happy](https://youtu.be/hmZ8WimfUfc)
 
 #### Rita Payés
 - [I'm a Fool to Want You](https://youtu.be/Mdfd5ye7ry4)
