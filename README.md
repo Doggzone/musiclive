@@ -76,7 +76,8 @@
 - [Besame mucho](https://youtu.be/It-t0YI0RyI), 50 Heineken Jazzaldia, Jul 26, 2015
 - [50 Heineken Jazzaldia en San Sebastián (España) - 26-7-2015](https://youtu.be/ii8yclVoUQM)
 - [Cheek to Cheek](https://youtu.be/HFGsRJM_4bs) (with Rita Payés), Dec 19, 2015
-- [He's Funny That Way](https://youtu.be/yEGxhGwHPdI) [[Music Video]](https://youtu.be/MfGKntocz1c) (2016) 
+- [He's Funny That Way](https://youtu.be/yEGxhGwHPdI) 
+- [He's Funny That Way](https://youtu.be/uf77wDA1rZw) [[Music Video]](https://youtu.be/MfGKntocz1c) (2016) 
 - [Crazy](https://youtu.be/O00B76tfK7U), Aug 2017
 - [16th Tokyo Jazz Festival 2017](https://youtu.be/Jd09uTs0cbM)
 - [Catania Jazz, Teatro ABC, 8 novembre 2017](https://youtu.be/_WSowCJW9yw)
