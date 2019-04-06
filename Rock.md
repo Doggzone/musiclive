@@ -3,6 +3,9 @@ layout: page
 title: Rock
 ---
 
+#### Aphrodite's Child
+- [Rain And Tears](https://youtu.be/7t7ZNkkNdBM)
+
 #### The Bangles
 - [Return to Bangleonia: Live in Concert](https://youtu.be/peSRbbRex0Y) (Full Concert at the Hollywood House of Blues in 2000)
 
@@ -96,6 +99,9 @@ title: Rock
 
 #### Queen
 - [Live Aid 1985](https://youtu.be/HktW217yGTw)
+
+#### Spencer Davis Group
+- [Keep on Running](https://youtu.be/iLfyL-_0g3s)
 
 #### Steely Dan
 - [Rikki Don't Lose That Number](https://youtu.be/6xN0hmNS_IU) performed by Jeff "Skunk" Baxter
