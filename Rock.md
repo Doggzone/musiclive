@@ -61,6 +61,12 @@ title: Rock
 #### The Eagles
 - [Live at Capital Center in Maryland (1977)](https://www.youtube.com/watch?v=e2nwt5sJRVQ)
 
+#### Emerson, Lake, & Palmer
+- [Take a Pebble](https://youtu.be/IaYsgjn82GA)
+- [Lucky Man](https://youtu.be/Nm7-cysfE2c)
+- [The Sage](https://youtu.be/7JrX4HQ5_Gw)
+- [Still You Turn Me On](https://youtu.be/yoxHGxQw9ws)
+
 #### Fleetwood Mac
 - [Go Your Own Way](https://youtu.be/qxa851vAJtI)
 
@@ -94,3 +100,6 @@ title: Rock
 #### Steely Dan
 - [Rikki Don't Lose That Number](https://youtu.be/6xN0hmNS_IU) performed by Jeff "Skunk" Baxter
 
+#### Yes
+- [The Lost Broadcasts at Beat Club]()
+- [Close to the Edge](https://youtu.be/Ne317y_eOYs)
