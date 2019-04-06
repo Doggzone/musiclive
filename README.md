@@ -108,6 +108,7 @@
 - [Careless Whisper](https://youtu.be/lVXziMFEqX0) (feat. Robyn Adele Anderson & Dave Koz)
 - [Oops!... I Did It Again](https://youtu.be/g_HN50TLuaI) (ft. Haley Reinhart)
 - [Barbie Girl](https://youtu.be/4ReSV3CCRzg) (ft. Morgan James)
+- [Can't Help Falling in Love](https://youtu.be/J7ClM1TUqBQ) (ft. Haley Reinhart)
 
 ### Tribute Concerts
 - [The Kennedy Center Honors Led Zeppelin 2012](https://youtu.be/ra-itTKnFaw)
