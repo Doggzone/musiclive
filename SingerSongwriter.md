@@ -3,6 +3,9 @@ layout: page
 title: Singer/Songwriter
 ---
 
+#### Eva Cassidy
+- [Over the Rainbow](https://youtu.be/2rd8VktT8xY)
+
 #### Bob Dylan
 - [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
 - [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
