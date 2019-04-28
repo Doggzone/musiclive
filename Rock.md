@@ -92,6 +92,7 @@ title: Rock
 
 #### The Moody Blues
 - [Live at ORTF French TV - 1968](https://youtu.be/OsWFme59YaM)
+- [Live at the Isle Of Wight Festival - 1970](https://youtu.be/vRuMgs4b1qk)
 - ["The Lost Performance" - Live at Taverne de L'Olympia - Paris - 1970](https://youtu.be/xdPlsov7bXY)
 - [Question](https://youtu.be/-wDHvmCVRxU)
 - [Melancholy Man](https://youtu.be/tYIYIVG64C4)
