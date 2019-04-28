@@ -7,6 +7,7 @@ title: Jazz
 - [Moanin’](https://youtu.be/uKOoxgI_xfQ)
 
 #### Dave Brubeck Quartet
+- [Take Five](https://youtu.be/tT9Eh8wNMkw)
 - [Live in 64](https://youtu.be/-3R3Avq--RE)
 
 #### John Coltrane & Stan Getz
