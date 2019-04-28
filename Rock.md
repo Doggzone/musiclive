@@ -90,6 +90,9 @@ title: Rock
 #### Mark Knopfler
 - [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
 
+#### The Moody Blues
+- [Live at ORTF French TV - 1968](https://youtu.be/OsWFme59YaM)
+
 #### The Pretenders
 - [Middle of the Road](https://youtu.be/cVry7uMud1o)
 - [Back on the Chain Gang](https://youtu.be/okvl-9svtS0)
@@ -105,6 +108,12 @@ title: Rock
 
 #### Steely Dan
 - [Rikki Don't Lose That Number](https://youtu.be/6xN0hmNS_IU) performed by Jeff "Skunk" Baxter
+
+#### Traffic
+- [Live At Santa Monica 1972](https://youtu.be/sSLdcL4LJBQ)
+
+#### Wishbone Ash
+- [You Rescue Me / Persephone / Time Was - Live at Rockpalast 1976](https://youtu.be/PFPaRUXkAmU)
 
 #### Yes
 - [The Lost Broadcasts at Beat Club]()
