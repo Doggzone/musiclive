@@ -5,6 +5,7 @@ title: Singer/Songwriter
 #### America
 - [Live in Musikladen](https://youtu.be/Mg-jf_vZTjQ)
 - [I Need You](https://youtu.be/Qk-7n1hdK3M)
+- [Live in Central Park 1979](https://youtu.be/6PsgLFDuVRU)
 
 #### Eva Cassidy
 - [Over the Rainbow](https://youtu.be/2rd8VktT8xY)
