@@ -6,6 +6,9 @@ title: Singer/Songwriter
 #### Eva Cassidy
 - [Over the Rainbow](https://youtu.be/2rd8VktT8xY)
 
+#### Crosby, Stills, & Nash
+- [Suite: Judy Blue Eyes - Live 2012](https://youtu.be/XWvw_uZPGDA)
+- [Wasted On The Way (1982)](https://youtu.be/Kg-Qdrr3XSk)
 #### Bob Dylan
 - [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
 - [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
@@ -30,6 +33,7 @@ title: Singer/Songwriter
 #### Joni Mitchell
 - [Both Sides, Now](https://youtu.be/4NdsnFZm0X4)
 - [In London 1970](https://youtu.be/dAxjPfWOiqI)
+- [Both Sides Now - Live At The Isle Of Wight Festival 1970](https://youtu.be/b7IYpfPr7ow)
 - [Woodstock (Live In-Studio 1970)](https://youtu.be/cRjQCvfcXn0)
 - [All Star Tribute to Joni Mitchell - Lifetime Award Concert TNT (4-16-2000)](https://youtu.be/KL20ICiejI4)
 
