@@ -117,7 +117,10 @@ title: Rock
 - [Live At Santa Monica 1972](https://youtu.be/sSLdcL4LJBQ)
 
 #### Wishbone Ash
-- [You Rescue Me / Persephone / Time Was - Live at Rockpalast 1976](https://youtu.be/PFPaRUXkAmU)
+- [At Rockpalast, Cologne, 1976/01/12](https://youtu.be/MT-yTBrplSE)
+  - [You Rescue Me / Persephone / Time Was - Live at Rockpalast 1976](https://youtu.be/PFPaRUXkAmU)
+- [At Winterland, San Francisco, 1976/04/02](https://youtu.be/gTHfwDXcJSQ)
+  - [Persephone at Winterland, 4/2/1976 - ](https://youtu.be/PrJNGXXszPk)
 
 #### Yes
 - [The Lost Broadcasts at Beat Club]()
