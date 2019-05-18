@@ -22,7 +22,9 @@
 - [Jazz on a Summer’s Day (1959)](https://youtu.be/Htwe0NBjq4c)
 
 ### In the Movie
+- [Moon River from Breakfast in Tiffany](https://youtu.be/uirBWk-qd9A)
 - [River of No Return](https://youtu.be/dLzeHkEQe9g)
+- [As Time Goes By from Casablanca](https://youtu.be/7vThuwa5RZU)
 
 ### Victor Borge
 - [The Best of Victor Borge](https://youtu.be/f00VEflQ5VQ)
