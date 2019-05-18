@@ -54,6 +54,9 @@ title: Rock
 - [White Room (Royal Albert Hall 2005)](https://youtu.be/dCc00pX_pFA)
 - [Sunshine Of Your Love (Royal Albert Hall 2005)](https://youtu.be/cYYeM_t6b5c)
 
+#### Deep Purple
+- [New York in 1973](https://youtu.be/1En47iPE9qE)
+
 #### Dire Straits
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
 
@@ -83,6 +86,13 @@ title: Rock
 
 #### Led Zeppelin
 - [Baby, I'm Gonna Leave You (1969)](https://youtu.be/fODt3iBXNv4)
+
+#### Lynyrd Skynyrd
+- [Free Bird](https://youtu.be/QxIWDmmqZzY)
+- [Sweet Home Alabama](https://youtu.be/6GxWmSVv-cY)
+- [Simple Man](https://youtu.be/Mqfwbf3X8SA)
+- [Free Bird](https://youtu.be/u2ndb_lt4xA)
+- [I Need You](https://youtu.be/KQbBEncW1mk)
 
 #### Procol Harum
 - [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
