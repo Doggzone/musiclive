@@ -19,4 +19,4 @@ title: Blues
 - [I'd Rather Go Blind (1975)](https://youtu.be/uZt1xKtPbUQ)
 - [I'd Rather Go Blind (1991)](https://youtu.be/x3OdjbmnlZU)
 - [I'd Rather Go Blind (2001)](https://youtu.be/tB2NqUdNH_w)
-- [I'd Rather Go Blind (201?)](https://youtu.be/ipI7DNvToMU)
+- [I'd Rather Go Blind (20??)](https://youtu.be/ipI7DNvToMU)
