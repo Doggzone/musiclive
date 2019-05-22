@@ -14,3 +14,7 @@ title: Blues
 - [Newport Jazz Festival 1994](https://youtu.be/GQZ1cguJsYU)
 - [North Sea Jazz Festival 2002](https://youtu.be/LxWyDgWvifE)
 - [Live from Red Rocks 2013](https://youtu.be/tKq9hQtf38A)
+
+#### Etta James
+- [I'd Rather Go Blind (1975)](https://youtu.be/uZt1xKtPbUQ)
+- [I'd Rather Go Blind (2001)](https://youtu.be/tB2NqUdNH_w)
