@@ -13,9 +13,13 @@ title: Singer/Songwriter
 #### Crosby, Stills, & Nash
 - [Suite: Judy Blue Eyes - Live 2012](https://youtu.be/XWvw_uZPGDA)
 - [Wasted On The Way (1982)](https://youtu.be/Kg-Qdrr3XSk)
+
 #### Bob Dylan
 - [Mr. Tambourine Man](https://youtu.be/OeP4FFr88SQ)
 - [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
+
+#### Elton John
+- [The Royal Opera House, London (Full Concert), December 1, 2002](https://youtu.be/vschhZ7TxIM)
 
 #### Norah Jones
 - [Concert Privé](https://youtu.be/yCNOTf9xbbY)
