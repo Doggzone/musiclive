@@ -19,7 +19,10 @@ title: Singer/Songwriter
 - [Blowing in the Wind](https://youtu.be/vWwgrjjIMXA)
 
 #### Elton John
+- [Your Song (Top Of The Pops 1971)](https://youtu.be/GlPlfCy1urI)
+- [Rocket Man (Royal Festival Hall, London 1972)](https://youtu.be/r_QZe8Z66x8)
 - [The Royal Opera House, London (Full Concert), December 1, 2002](https://youtu.be/vschhZ7TxIM)
+- [Elton John & Taron Egerton – Your Song (Brighton & Hove 2019)](https://youtu.be/djbYnvpvWso)
 
 #### Norah Jones
 - [Concert Privé](https://youtu.be/yCNOTf9xbbY)
