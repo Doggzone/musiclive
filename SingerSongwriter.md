@@ -21,7 +21,11 @@ title: Singer/Songwriter
 #### Elton John
 - [Your Song (Top Of The Pops 1971)](https://youtu.be/GlPlfCy1urI)
 - [Rocket Man (Royal Festival Hall, London 1972)](https://youtu.be/r_QZe8Z66x8)
+- [Captain Fantastic Live 1975](https://youtu.be/4VakOFC7AeE)
+- [HBO Special, Wembley 1977](https://youtu.be/SiUK73JfJCA)
+- [Live at "The Great Amphitheatre", Ephesus, Turkey, July 17, 2001](https://youtu.be/HG_q8dO_DRY)
 - [The Royal Opera House, London (Full Concert), December 1, 2002](https://youtu.be/vschhZ7TxIM)
+- [Rock in Rio 2015](https://youtu.be/LbaDSxuOKeQ)
 - [Elton John & Taron Egerton – Your Song (Brighton & Hove 2019)](https://youtu.be/djbYnvpvWso)
 
 #### Norah Jones
