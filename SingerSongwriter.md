@@ -20,9 +20,12 @@ title: Singer/Songwriter
 
 #### Elton John
 - [Your Song (Top Of The Pops 1971)](https://youtu.be/GlPlfCy1urI)
+- [Tiny Dancer (Old Grey Whistle Test 1971)](https://youtu.be/UroApoVbKn0)
 - [Rocket Man (Royal Festival Hall, London 1972)](https://youtu.be/r_QZe8Z66x8)
 - [Captain Fantastic Live 1975](https://youtu.be/4VakOFC7AeE)
 - [HBO Special, Wembley 1977](https://youtu.be/SiUK73JfJCA)
+- [Don't Go Breaking My Heart (with Kiki Dee)](https://youtu.be/z0qW9P-uYfM)
+- Live Aid 1985: [Bennie and the Jets](https://youtu.be/SzMaWLbLnG8), [Rocket Man](https://youtu.be/DMBhYnUKr-c)
 - [Live at "The Great Amphitheatre", Ephesus, Turkey, July 17, 2001](https://youtu.be/HG_q8dO_DRY)
 - [The Royal Opera House, London (Full Concert), December 1, 2002](https://youtu.be/vschhZ7TxIM)
 - [Rock in Rio 2015](https://youtu.be/LbaDSxuOKeQ)
