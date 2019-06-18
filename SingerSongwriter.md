@@ -28,6 +28,7 @@ title: Singer/Songwriter
 - Live Aid 1985: [Bennie and the Jets](https://youtu.be/SzMaWLbLnG8), [Rocket Man](https://youtu.be/DMBhYnUKr-c)
 - [Live at "The Great Amphitheatre", Ephesus, Turkey, July 17, 2001](https://youtu.be/HG_q8dO_DRY)
 - [The Royal Opera House, London (Full Concert), December 1, 2002](https://youtu.be/vschhZ7TxIM)
+- [60 Live At Madison Square Garden, 2007](https://youtu.be/teYZM0Aft0A)
 - [Rock in Rio 2015](https://youtu.be/LbaDSxuOKeQ)
 - [Elton John & Taron Egerton – Your Song (Brighton & Hove 2019)](https://youtu.be/djbYnvpvWso)
 
