@@ -67,3 +67,11 @@ title: Singer/Songwriter
 
 #### Neil Young
 - [Cowgirl in the Sand (Live at Massey Hall 1971)](https://youtu.be/zphUt_tp898)
+- [Don't Let It Bring You Down (Live at Massey Hall 1971)](https://youtu.be/F7letrMf_nE)
+- [On the Way Home / Tell Me Why (Live at Massey Hall 1971)](https://youtu.be/V5vkDShl00I)
+- [Old Man (Live at Massey Hall 1971)](https://youtu.be/An2a1_Do_fc)
+- [Heart Of Gold](https://youtu.be/Eh44QPT1mPE)
+- [Out On The Weekend (Live at the BBC 1971)](https://youtu.be/Hn1BapsppXM)
+- [Needle and the Damage Done (At the Johnny Cash Show](https://youtu.be/k0t0EW6z8a0)
+- [Lotta Love](https://youtu.be/ELakJxPiieU)
+- [Mr. Soul](https://youtu.be/EMRqN0m5c-M)
