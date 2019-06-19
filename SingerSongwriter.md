@@ -72,6 +72,6 @@ title: Singer/Songwriter
 - [Old Man (Live at Massey Hall 1971)](https://youtu.be/An2a1_Do_fc)
 - [Heart Of Gold](https://youtu.be/Eh44QPT1mPE)
 - [Out On The Weekend (Live at the BBC 1971)](https://youtu.be/Hn1BapsppXM)
-- [Needle and the Damage Done (At the Johnny Cash Show](https://youtu.be/k0t0EW6z8a0)
+- [Needle and the Damage Done (At the Johnny Cash Show)](https://youtu.be/k0t0EW6z8a0)
 - [Lotta Love](https://youtu.be/ELakJxPiieU)
 - [Mr. Soul](https://youtu.be/EMRqN0m5c-M)
