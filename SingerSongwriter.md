@@ -74,4 +74,5 @@ title: Singer/Songwriter
 - [Out On The Weekend (Live at the BBC 1971)](https://youtu.be/Hn1BapsppXM)
 - [Needle and the Damage Done (At the Johnny Cash Show)](https://youtu.be/k0t0EW6z8a0)
 - [Lotta Love](https://youtu.be/ELakJxPiieU)
+- [Long may You Run (unplugged)](https://youtu.be/WYna-UAt75c)
 - [Mr. Soul](https://youtu.be/EMRqN0m5c-M)
