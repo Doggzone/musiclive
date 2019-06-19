@@ -9,6 +9,7 @@ title: Blues
 #### Samantha Fish
 - [I Put A Spell On You](https://youtu.be/Ymsb_4Z3uy0)
 - [Daytrotter Session (2017)](https://youtu.be/rez_wT5gVB8)
+- [Either Way I Lose / Somebody`s Always Trying 11/12/2017](https://youtu.be/kr_iMKjHaqo)
 
 #### Buddy Guy
 - [Newport Jazz Festival 1994](https://youtu.be/GQZ1cguJsYU)
