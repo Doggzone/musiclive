@@ -65,3 +65,5 @@ title: Singer/Songwriter
 - [Nobody Does It Better](https://youtu.be/SaV-6qerkqI)
 - [You’re So Vain](https://youtu.be/M8uU_4XBugA)
 
+#### Neil Young
+- [Cowgirl in the Sand (Live at Massey Hall 1971)](https://youtu.be/zphUt_tp898)
