@@ -94,9 +94,6 @@ title: Rock
 - [Free Bird](https://youtu.be/u2ndb_lt4xA)
 - [I Need You](https://youtu.be/KQbBEncW1mk)
 
-#### Procol Harum
-- [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
-
 #### Mark Knopfler
 - [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
 
@@ -111,11 +108,20 @@ title: Rock
 - [Middle of the Road](https://youtu.be/cVry7uMud1o)
 - [Back on the Chain Gang](https://youtu.be/okvl-9svtS0)
 
+#### Procol Harum
+- [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
+- [Power Failure / A Salty Dog / Simple Sister - Live 1971](https://youtu.be/WVtUdXAJoto)
+- [Conquistador - Live at RTBF TV 1973](https://youtu.be/tWN3naG4fAg)
+
 #### Linda Ronstadt
 - [Desperado](https://youtu.be/wpbiCVmjfrU)
 
 #### Queen
 - [Live Aid 1985](https://youtu.be/HktW217yGTw)
+
+### Santana
+- [Evil Ways 1969 "Woodstock" Live](https://youtu.be/nPauXWjY4T8)
+- [Black Magic Woman - 8/18/1970 - Tanglewood](https://youtu.be/axbtig7w7a8)
 
 #### Spencer Davis Group
 - [Keep on Running](https://youtu.be/iLfyL-_0g3s)
