@@ -112,6 +112,7 @@ title: Rock
 - [A White Shade of Pale / Kaleidoscope](https://youtu.be/valL7JWjVB4)
 - [Power Failure / A Salty Dog / Simple Sister - Live 1971](https://youtu.be/WVtUdXAJoto)
 - [Conquistador - Live at RTBF TV 1973](https://youtu.be/tWN3naG4fAg)
+- [Full Concert - Live at Rockpalast 1976](https://youtu.be/Tcm5ciJKxnU)
 
 #### Linda Ronstadt
 - [Desperado](https://youtu.be/wpbiCVmjfrU)
