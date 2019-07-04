@@ -19,6 +19,8 @@ title: Classical
 - [Rachmaninov: Vocalise](https://youtu.be/Kf8KVCVSBgg)
 - [Kreisler: Liebesleid](https://youtu.be/oY6JBHFC1TU)
 - [Schubert: Fantasie in C major, D 934](https://youtu.be/OTrPvwr-bg0)
+- [Sarasate: Carmen Fantasy](https://youtu.be/pGbpxTgbMdg)
+- [Vivaldi: 'Winter' from 'Four seasons'](https://youtu.be/H7IuNV-5kns)
 - [Saint-Saëns: Violin Concerto No. 3](https://youtu.be/GyuPw0rAxlQ)
 - [Beethoven: Violin Concerto](https://youtu.be/zPmVGT3wYlo)
 - [Tchaikovsky: Violin Concerto in D Major, Op.35](https://youtu.be/T2kVq7eAKo8)
