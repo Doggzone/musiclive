@@ -60,6 +60,7 @@ title: Rock
 #### Dire Straits
 - [Rockpalast 1979](https://youtu.be/aQezEWiUY8I)
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
+- [Money For Nothing (Live At Knebworth)](https://youtu.be/dlPjxz4LGak) with Eric Clapton
 
 #### The Doobie Brothers
 - [Listen to the Music](https://youtu.be/c2VEdIxX42g)
