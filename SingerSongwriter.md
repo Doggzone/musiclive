@@ -69,6 +69,9 @@ title: Singer/Songwriter
 - [Nobody Does It Better](https://youtu.be/SaV-6qerkqI)
 - [You’re So Vain](https://youtu.be/M8uU_4XBugA)
 
+#### Simon & Garfunkel
+- [Full Concert - 11/06/93 - Shoreline Amphitheatre](https://youtu.be/Bxryb3xN-Lo)
+
 #### Neil Young
 - [Cowgirl in the Sand (Live at Massey Hall 1971)](https://youtu.be/zphUt_tp898)
 - [Don't Let It Bring You Down (Live at Massey Hall 1971)](https://youtu.be/F7letrMf_nE)
