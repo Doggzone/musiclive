@@ -6,6 +6,7 @@ title: Singer/Songwriter
 - [Live in Musikladen](https://youtu.be/Mg-jf_vZTjQ)
 - [I Need You](https://youtu.be/Qk-7n1hdK3M)
 - [Live in Central Park 1979](https://youtu.be/6PsgLFDuVRU)
+- [Sister Golden Hair](https://youtu.be/LzUQZw3wfro)
 
 #### Eva Cassidy
 - [Over the Rainbow](https://youtu.be/2rd8VktT8xY)
@@ -45,6 +46,9 @@ title: Singer/Songwriter
 - [Country Road/Fire And Rain](https://youtu.be/A6z4JfJcs1E)
 - [You Can Close Your Eyes](https://youtu.be/RubqFRAmKM4)
 
+#### Don McLean
+- [Vincent](https://youtu.be/4wrNFDxCRzU)
+
 #### Katie Melua
 - [Fields of Gold](https://youtu.be/hPvFxbnPr1Q)
 - [Diamonds are Forever](https://youtu.be/ZOG3lUM2ZtY)
@@ -76,3 +80,4 @@ title: Singer/Songwriter
 - [Lotta Love](https://youtu.be/ELakJxPiieU)
 - [Long may You Run (unplugged)](https://youtu.be/WYna-UAt75c)
 - [Mr. Soul](https://youtu.be/EMRqN0m5c-M)
+- [Four Strong Winds (Live at Farm Aid 1995)](https://youtu.be/yIQu_MVZcas)
