@@ -18,3 +18,8 @@ title: Classical
 - [Debussy: Clair de lune](https://youtu.be/X1EwMVHPD9Y)
 - [Rachmaninov: Vocalise](https://youtu.be/Kf8KVCVSBgg)
 - [Kreisler: Liebesleid](https://youtu.be/oY6JBHFC1TU)
+- [Saint-Saëns: Violin Concerto No. 3](https://youtu.be/GyuPw0rAxlQ)
+- [Beethoven: Violin Concerto](https://youtu.be/zPmVGT3wYlo)
+- [Tchaikovsky: Violin Concerto in D Major, Op.35](https://youtu.be/T2kVq7eAKo8)
+- [Tchaikovsky: Violin Concerto in D major, Op.35, Novaya Rossiya Symphony Orchestra
+Yury Bashmet, Conductor](https://youtu.be/Xut9PmecC-E)
