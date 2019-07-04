@@ -58,6 +58,7 @@ title: Rock
 - [New York in 1973](https://youtu.be/1En47iPE9qE)
 
 #### Dire Straits
+- [Rockpalast 1979](https://youtu.be/aQezEWiUY8I)
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
 
 #### The Doobie Brothers
@@ -126,6 +127,9 @@ title: Rock
 
 #### Spencer Davis Group
 - [Keep on Running](https://youtu.be/iLfyL-_0g3s)
+
+#### Spirit
+- [Rockpalast 1978](https://youtu.be/E_jYkwWjgh8)
 
 #### Steely Dan
 - [Rikki Don't Lose That Number](https://youtu.be/6xN0hmNS_IU) performed by Jeff "Skunk" Baxter
