@@ -21,5 +21,4 @@ title: Classical
 - [Saint-Saëns: Violin Concerto No. 3](https://youtu.be/GyuPw0rAxlQ)
 - [Beethoven: Violin Concerto](https://youtu.be/zPmVGT3wYlo)
 - [Tchaikovsky: Violin Concerto in D Major, Op.35](https://youtu.be/T2kVq7eAKo8)
-- [Tchaikovsky: Violin Concerto in D major, Op.35, Novaya Rossiya Symphony Orchestra
-Yury Bashmet, Conductor](https://youtu.be/Xut9PmecC-E)
+- [Tchaikovsky: Violin Concerto in D major, Op.35, Novaya Rossiya Symphony Orchestra, Yury Bashmet, Conductor](https://youtu.be/Xut9PmecC-E)
