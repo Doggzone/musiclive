@@ -37,6 +37,8 @@ title: Jazz
 
 #### Billie Holiday
 - [New Orleans](https://youtu.be/m4jU8IQK5b0) with Louis Armstrong
+- [On Stars of Jazz (1956)](https://youtu.be/N0aaZnxnkEo)
+- [Fine And Mellow (1957)](https://youtu.be/dU9MngCuL5s)
 - [Don't Explain (Live 1958)](https://youtu.be/0MWRheQtvmA)
 - ["Strange Fruit" Live 1959](https://youtu.be/-DGY9HvChXk)
 
@@ -102,11 +104,11 @@ title: Jazz
 #### Cécile McLorin Salvant
 -[Just a Gigolo](https://youtu.be/56OIlH6aluE) Wynton Marsalis Quintet featuring Cécile McLorin Salvant at Jazz in Marciac 2017
 
-
-
 #### Sarah Vaughan
 - [Misty (Live from Sweden 1964)](https://youtu.be/lJXLqAutql4)
+- [The More I See You (Live from Sweden) 1964](https://youtu.be/rLZkezRkJtw)
 - [Berliner Jazztage 1969](https://youtu.be/8RP_stm0ErA)
+- [Live At Satin Doll, Tokyo, Japan](https://youtu.be/R4fZp-QJu4I)
 
 ### The Joan Chamorro School
 - [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
