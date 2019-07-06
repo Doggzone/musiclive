@@ -70,8 +70,15 @@ title: Rock
 #### Dire Straits
 - [Sultans of Swing](https://youtu.be/cnAEuAd_6Lc)
 - [Rockpalast 1979](https://youtu.be/aQezEWiUY8I)
+- [Sultans Of Swing (Live Aid 1985)](https://youtu.be/JVZTP_kX5BE)
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
 - [Money For Nothing (Live At Knebworth)](https://youtu.be/dlPjxz4LGak) with Eric Clapton
+
+#### Mark Knopfler
+- [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
+- [Sultans Of Swing (An Evening With Mark Knopfler, 2009)](https://youtu.be/leZ4T8kt-1o)
+- [Milano 2019](https://youtu.be/0XieQxMDSJo)
+- [Telegraph Road, Córdoba 2019](https://youtu.be/5LS7ZKn5TyQ)
 
 #### The Doobie Brothers
 - [Listen to the Music](https://youtu.be/c2VEdIxX42g)
@@ -106,9 +113,6 @@ title: Rock
 - [Simple Man](https://youtu.be/Mqfwbf3X8SA)
 - [Free Bird](https://youtu.be/u2ndb_lt4xA)
 - [I Need You](https://youtu.be/KQbBEncW1mk)
-
-#### Mark Knopfler
-- [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
 
 #### The Moody Blues
 - [Live at ORTF French TV - 1968](https://youtu.be/OsWFme59YaM)
