@@ -11,9 +11,12 @@ title: Rock
 
 #### The Beatles
 - [Yesterday (1966)](https://youtu.be/4YWyFIzSeXI)
+- [Hey Jude (Take 9)](https://youtu.be/FxqSmV60aYE)
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
+- [Paul McCartney - "Abbey Road" Medley ft. Eric Clapton, Phil Collins & Mark Knopfler](https://youtu.be/-mJt_T0N0mQ)
 
 #### Chicago
+- [Live in Amsterdam 12/12/1969](https://youtu.be/Nxo7o-Naa38)
 - [Full Concert: Recorded Live: 7/21/1970 - Tanglewood (Lenox, MA)](https://youtu.be/_oAoSZ2y1cw)
   - [Does Anybody Really Know What Time It Is?](https://youtu.be/jgF_ycCmF18)
   - [Beginnings](https://youtu.be/pizRRft3_8Y)
@@ -58,6 +61,7 @@ title: Rock
 - [New York in 1973](https://youtu.be/1En47iPE9qE)
 
 #### Dire Straits
+- [Sultans of Swing](https://youtu.be/cnAEuAd_6Lc)
 - [Rockpalast 1979](https://youtu.be/aQezEWiUY8I)
 - [Money for Nothing (Live Aid 1985)](https://youtu.be/JcqhvPNiJzo) with Sting
 - [Money For Nothing (Live At Knebworth)](https://youtu.be/dlPjxz4LGak) with Eric Clapton
@@ -70,6 +74,7 @@ title: Rock
 - [Live at Capital Center in Maryland (1977)](https://www.youtube.com/watch?v=e2nwt5sJRVQ)
 
 #### Emerson, Lake, & Palmer
+- [Live in Zurich 1970](https://youtu.be/Kbc9UZIQoy4)
 - [Take a Pebble](https://youtu.be/IaYsgjn82GA)
 - [Lucky Man](https://youtu.be/Nm7-cysfE2c)
 - [The Sage](https://youtu.be/7JrX4HQ5_Gw)
@@ -77,6 +82,9 @@ title: Rock
 
 #### Fleetwood Mac
 - [Go Your Own Way](https://youtu.be/qxa851vAJtI)
+
+#### Genesis
+- [Live 1973](https://youtu.be/_FBcz3tBH74)
 
 #### George Harrison
 - [While My Guitar Gently Weeps (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw) with Eric Clapton
@@ -88,6 +96,7 @@ title: Rock
 
 #### Led Zeppelin
 - [Baby, I'm Gonna Leave You (1969)](https://youtu.be/fODt3iBXNv4)
+- [Stairway to Heaven](https://youtu.be/6hBLHkmBKDg)
 
 #### Lynyrd Skynyrd
 - [Free Bird](https://youtu.be/QxIWDmmqZzY)
