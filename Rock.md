@@ -13,7 +13,14 @@ title: Rock
 - [Yesterday (1966)](https://youtu.be/4YWyFIzSeXI)
 - [Hey Jude (Take 9)](https://youtu.be/FxqSmV60aYE)
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
+
+#### Paul McCartney
 - [Paul McCartney - "Abbey Road" Medley ft. Eric Clapton, Phil Collins & Mark Knopfler](https://youtu.be/-mJt_T0N0mQ)
+
+#### George Harrison
+- [While My Guitar Gently Weeps (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw) with Eric Clapton
+- [While My Guitar Gently Weeps (1987)](https://youtu.be/i8rVI7AMKiY) with Eric Clapton
+- [Give Me Love (Give Me Peace On Earth) (1991)](https://youtu.be/EjHLxTGn--s)
 
 #### Chicago
 - [Live in Amsterdam 12/12/1969](https://youtu.be/Nxo7o-Naa38)
@@ -85,11 +92,6 @@ title: Rock
 
 #### Genesis
 - [Live 1973](https://youtu.be/_FBcz3tBH74)
-
-#### George Harrison
-- [While My Guitar Gently Weeps (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw) with Eric Clapton
-- [While My Guitar Gently Weeps (1987)](https://youtu.be/i8rVI7AMKiY) with Eric Clapton
-- [Give Me Love (Give Me Peace On Earth) (1991)](https://youtu.be/EjHLxTGn--s)
 
 #### Heart
 - [Fanatic Live from Caesars Colosseum](https://youtu.be/4GCN5qhc5yM) (2012)
