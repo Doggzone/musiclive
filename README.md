@@ -25,6 +25,10 @@
 - [Moon River from Breakfast in Tiffany](https://youtu.be/uirBWk-qd9A)
 - [River of No Return](https://youtu.be/dLzeHkEQe9g)
 - [As Time Goes By from Casablanca](https://youtu.be/7vThuwa5RZU)
+- [Do-Re-Mi from The Sound of Music](https://youtu.be/jITsImZdlMQ)
+- [So Long, Farewell from The Sound of Music](https://youtu.be/-nRU5RIDWXU)
+- [Edelweiss from The Sound of Music](https://youtu.be/8bL2BCiFkTk)
+- [Doris Day sings "Secret Love" from "Calamity Jane" (1953)](https://youtu.be/fU8tQpCZEzg)
 
 ### Victor Borge
 - [The Best of Victor Borge](https://youtu.be/f00VEflQ5VQ)
