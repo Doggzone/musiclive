@@ -3,6 +3,9 @@ layout: page
 title: Jazz
 ---
 
+#### Chet Baker
+- [My Funny Valentine](https://youtu.be/UOEIQKczRPY)
+
 #### Art Blakey & the Jazz Messengers
 - [Moanin’](https://youtu.be/uKOoxgI_xfQ)
 
