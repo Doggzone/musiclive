@@ -76,7 +76,9 @@ title: Rock
 
 #### Mark Knopfler
 - [Money for Nothing](https://youtu.be/6D6cw8Ob2sk) with Eric Clapton and Sting
+- [Romeo And Juliet (Real Live Roadrunning 2006)](https://youtu.be/vyI9flHHT2Q)
 - [Sultans Of Swing (An Evening With Mark Knopfler, 2009)](https://youtu.be/leZ4T8kt-1o)
+- [Sultans of Swing (Sevilla 26.07.2015)](https://youtu.be/gwiqnJdN1Ug)
 - [Milano 2019](https://youtu.be/0XieQxMDSJo)
 - [Telegraph Road, Córdoba 2019](https://youtu.be/5LS7ZKn5TyQ)
 
@@ -93,6 +95,7 @@ title: Rock
 - [Lucky Man](https://youtu.be/Nm7-cysfE2c)
 - [The Sage](https://youtu.be/7JrX4HQ5_Gw)
 - [Still You Turn Me On](https://youtu.be/yoxHGxQw9ws)
+- [Montreal's Olympic Stadium in 1977](https://youtu.be/SMd95IIexHo)
 
 #### Fleetwood Mac
 - [Go Your Own Way](https://youtu.be/qxa851vAJtI)
@@ -126,6 +129,10 @@ title: Rock
 - ["The Lost Performance" - Live at Taverne de L'Olympia - Paris - 1970](https://youtu.be/xdPlsov7bXY)
 - [Question](https://youtu.be/-wDHvmCVRxU)
 - [Melancholy Man](https://youtu.be/tYIYIVG64C4)
+
+#### Pink FLoyd
+- [Shine On You Crazy Diamond (Live Pulse 1994)](https://youtu.be/VyLY8YDWzrQ)
+- [David Gilmour - Wish You Were Here, Meltdown Concert 2002](https://youtu.be/EodytPmki5s)
 
 #### The Pretenders
 - [Middle of the Road](https://youtu.be/cVry7uMud1o)
