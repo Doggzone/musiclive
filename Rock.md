@@ -100,8 +100,14 @@ title: Rock
 #### Genesis
 - [Live 1973](https://youtu.be/_FBcz3tBH74)
 
+#### Grand Funk Railroad
+- [Inside Looking Out Live 1969](https://youtu.be/9U8socv_seg)
+
 #### Heart
 - [Fanatic Live from Caesars Colosseum](https://youtu.be/4GCN5qhc5yM) (2012)
+
+#### Jethro Tull
+- [Live at the Capital Centre 1977](https://youtu.be/QByXiqkECKQ)
 
 #### Led Zeppelin
 - [Baby, I'm Gonna Leave You (1969)](https://youtu.be/fODt3iBXNv4)
