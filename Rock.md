@@ -22,6 +22,7 @@ title: Rock
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
 
 #### Paul McCartney
+- [Wings Over Australia 1975](https://youtu.be/M4T4biiXqvs)
 - [Paul McCartney - "Abbey Road" Medley ft. Eric Clapton, Phil Collins & Mark Knopfler](https://youtu.be/-mJt_T0N0mQ)
 
 #### George Harrison
