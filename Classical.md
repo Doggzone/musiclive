@@ -10,6 +10,9 @@ title: Classical
 - [Chopin: Piano Concerto No.1 in E minor, Op. 11](https://youtu.be/614oSsDS734) at Chopin Competition Final Stage 2015
 - [Chopin - 24 Preludes, Op. 28](https://youtu.be/QWFR9joxbpc)
 
+#### Kyung-Wha Chung
+- [J.S.Bach - Air on the G String (arr. from Orchestral Suite)](https://youtu.be/x1_bCsEHJ2c)
+
 #### Clara-Jumi Kang
 - [Gluck: Melodie (Arr. Kreisler)](https://youtu.be/R4EzsYsBYPY)
 - [Paganini: La Campanella (Arr. Kreisler)](https://youtu.be/42O0EZkeQ_c)
@@ -25,3 +28,6 @@ title: Classical
 - [Beethoven: Violin Concerto](https://youtu.be/zPmVGT3wYlo)
 - [Tchaikovsky: Violin Concerto in D Major, Op.35](https://youtu.be/T2kVq7eAKo8)
 - [Tchaikovsky: Violin Concerto in D major, Op.35, Novaya Rossiya Symphony Orchestra, Yury Bashmet, Conductor](https://youtu.be/Xut9PmecC-E)
+
+#### Zia Shin
+- [Zigeunerweisen](https://youtu.be/tNfhA0lXy4I)
