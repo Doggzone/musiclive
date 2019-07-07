@@ -8,6 +8,12 @@ title: Singer/Songwriter
 - [Live in Central Park 1979](https://youtu.be/6PsgLFDuVRU)
 - [Sister Golden Hair](https://youtu.be/LzUQZw3wfro)
 
+#### Jeff Buckley
+- [Hallelujah (from Live in Chicago)](https://youtu.be/2YjbJTS5C_I)
+- [MTV Japan, 1/31/95](https://youtu.be/mmZI-8gazKE)
+- [Lilac Wine - Live aus dem Südbahnhof - Frankfurt, Germany 2/24/95](https://youtu.be/IRfhAIbD5o0)
+- [Last Goodbye - Live aus dem Südbahnhof - Frankfurt, Germany 2/24/95](https://youtu.be/4_95DuEmt_E)
+
 #### Eva Cassidy
 - [Over the Rainbow](https://youtu.be/2rd8VktT8xY)
 
