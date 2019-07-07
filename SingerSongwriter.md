@@ -17,6 +17,9 @@ title: Singer/Songwriter
 #### Eva Cassidy
 - [Over the Rainbow](https://youtu.be/2rd8VktT8xY)
 
+#### Leonard Cohen
+- [Suzanne (Live At The Isle of Wight 1970)](https://youtu.be/n_56ep729TE)
+
 #### Crosby, Stills, & Nash
 - [Suite: Judy Blue Eyes - Live 2012](https://youtu.be/XWvw_uZPGDA)
 - [Wasted On The Way (1982)](https://youtu.be/Kg-Qdrr3XSk)
