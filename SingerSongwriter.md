@@ -32,6 +32,7 @@ title: Singer/Songwriter
 - [60 Live At Madison Square Garden, 2007](https://youtu.be/teYZM0Aft0A)
 - [Rock in Rio 2015](https://youtu.be/LbaDSxuOKeQ)
 - [Elton John & Taron Egerton – Your Song (Brighton & Hove 2019)](https://youtu.be/djbYnvpvWso)
+- [Rocket Man](https://youtu.be/fpfX_QAMxuU)
 
 #### Norah Jones
 - [Concert Privé](https://youtu.be/yCNOTf9xbbY)
