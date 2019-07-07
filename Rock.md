@@ -10,7 +10,14 @@ title: Rock
 - [Return to Bangleonia: Live in Concert](https://youtu.be/peSRbbRex0Y) (Full Concert at the Hollywood House of Blues in 2000)
 
 #### The Beatles
+- [1963 TV Concert: 'It's The Beatles' Live](https://youtu.be/brwmLjD-3Hw)
+- [1964 LIVE](https://youtu.be/MG-DXGKDBcA)
+- [In Concert for Shell (1964)](https://youtu.be/ntyajiPZV9k)
+- [Tell Me Why/ If I Fell/ I Should Have Known Better](https://youtu.be/FV_PGs0m34U)
+- [Till There Was You](https://youtu.be/VeYSUPQVoRI)
+- [All My loving (Ed sullivan)](https://youtu.be/1OJHVZ7qhwI)
 - [Yesterday (1966)](https://youtu.be/4YWyFIzSeXI)
+- [Nowhere Man](https://youtu.be/R4ZE4arxJwc)
 - [Hey Jude (Take 9)](https://youtu.be/FxqSmV60aYE)
 - [Hey Jude](https://youtu.be/A_MjCqQoLLA)
 
@@ -131,6 +138,7 @@ title: Rock
 - [Melancholy Man](https://youtu.be/tYIYIVG64C4)
 
 #### Pink FLoyd
+- [Echoes, Pompeii, Italy, October 1971](https://youtu.be/y-E7_VHLvkE)
 - [Shine On You Crazy Diamond (Live Pulse 1994)](https://youtu.be/VyLY8YDWzrQ)
 - [David Gilmour - Wish You Were Here, Meltdown Concert 2002](https://youtu.be/EodytPmki5s)
 
@@ -163,6 +171,9 @@ title: Rock
 
 #### Steely Dan
 - [Rikki Don't Lose That Number](https://youtu.be/6xN0hmNS_IU) performed by Jeff "Skunk" Baxter
+
+#### Styx
+- [Fooling Yourself, Styx and the Contemporary Youth Orchestra of Cleveland: One with Everything(2006)](https://youtu.be/brDDzKOcvPA)
 
 #### Traffic
 - [Live At Santa Monica 1972](https://youtu.be/sSLdcL4LJBQ)
