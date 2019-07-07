@@ -11,6 +11,9 @@ title: Blues
 - [Daytrotter Session (2017)](https://youtu.be/rez_wT5gVB8)
 - [Either Way I Lose / Somebody`s Always Trying 11/12/2017](https://youtu.be/kr_iMKjHaqo)
 
+#### Ina Forsman with Helge Tallqvist Band
+- [Have You Ever Loved a Woman (2014)](https://youtu.be/MimA6Cdc4mE)
+
 #### Buddy Guy
 - [Newport Jazz Festival 1994](https://youtu.be/GQZ1cguJsYU)
 - [North Sea Jazz Festival 2002](https://youtu.be/LxWyDgWvifE)
