@@ -13,6 +13,7 @@ title: Rock
 - [1963 TV Concert: 'It's The Beatles' Live](https://youtu.be/brwmLjD-3Hw)
 - [1964 LIVE](https://youtu.be/MG-DXGKDBcA)
 - [In Concert for Shell (1964)](https://youtu.be/ntyajiPZV9k)
+- [Australia Concert](https://youtu.be/e6r523MsuUk)
 - [Tell Me Why/ If I Fell/ I Should Have Known Better](https://youtu.be/FV_PGs0m34U)
 - [Till There Was You](https://youtu.be/VeYSUPQVoRI)
 - [All My loving (Ed sullivan)](https://youtu.be/1OJHVZ7qhwI)
@@ -24,6 +25,8 @@ title: Rock
 #### Paul McCartney
 - [Wings Over Australia 1975](https://youtu.be/M4T4biiXqvs)
 - [Paul McCartney - "Abbey Road" Medley ft. Eric Clapton, Phil Collins & Mark Knopfler](https://youtu.be/-mJt_T0N0mQ)
+- [Live from NYC](https://youtu.be/1QGxFpSb6Sc)
+- [In Argentine (2019)](https://youtu.be/7HkRLvqWyaY)
 
 #### George Harrison
 - [While My Guitar Gently Weeps (The Concert for Bangladesh 1971)](https://youtu.be/A8CivPhu0fw) with Eric Clapton
@@ -75,7 +78,12 @@ title: Rock
 #### Deep Purple
 - [Live at Essener Pop & Blues Festival 1969](https://youtu.be/g0kTnE9v4yE)
 - [Live at Granada TV - 1970](https://youtu.be/Gwzq52iNaaM)
+- [Speed King (Live 1970 UK)](https://youtu.be/XXgMN_KjzW0)
+- [No No No (Take 2) 1971 Rehearsal Session for German TV](https://youtu.be/04O-B5aAcqE)
+- [Child in Time - Made in Japan (1972)](https://youtu.be/2tsUn2UreZc)
 - [New York in 1973](https://youtu.be/1En47iPE9qE)
+- [Lazy](https://youtu.be/uflsjU95lRM)
+- [Smoke On The Water](https://youtu.be/F7ZF2xaNhyw)
 
 #### Dire Straits
 - [Sultans of Swing](https://youtu.be/cnAEuAd_6Lc)
@@ -124,7 +132,9 @@ title: Rock
 
 #### Led Zeppelin
 - [Baby, I'm Gonna Leave You (1969)](https://youtu.be/fODt3iBXNv4)
+- [1972.02.27 Sydney](https://youtu.be/CmO_8NYxl1A)
 - [Stairway to Heaven](https://youtu.be/6hBLHkmBKDg)
+- [Stairway to Heaven](https://youtu.be/xbhCPt6PZIU)
 
 #### Lynyrd Skynyrd
 - [Free Bird](https://youtu.be/QxIWDmmqZzY)
