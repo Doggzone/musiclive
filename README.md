@@ -25,6 +25,8 @@
 - [The Carpenters - Superstar](https://youtu.be/eGrLUavvkIA)
 - [Julie Andrews - Full Concert - 02/17/95](https://youtu.be/x5l-vdEwjDo)
 - [Laura & Anton - "La Vie En Rose"](https://youtu.be/-NK9zdPj-os)
+- [Avalon Jazz Band - I love Paris (Cole Porter)](https://youtu.be/-hU_X6Vr1MY)
+- [Avalon Jazz Band - Que reste-t-il de nos amours? (Charles Trenet)](https://youtu.be/OddALnXIhkE)
 - [Tina Arena - The Windmills of Your Mind (Live)](https://youtu.be/oaYkzipUVvg)
 - [The Chordettes - Mr Sandman (Live 1958)](https://youtu.be/VNUgsbKisp8)
 
@@ -36,6 +38,9 @@
 - [So Long, Farewell from The Sound of Music](https://youtu.be/-nRU5RIDWXU)
 - [Edelweiss from The Sound of Music](https://youtu.be/8bL2BCiFkTk)
 - [Doris Day sings "Secret Love" from "Calamity Jane" (1953)](https://youtu.be/fU8tQpCZEzg)
+
+### Documentary
+- [Universal Mind of Bill Evans (1966 Documentary)](https://youtu.be/QwXAqIaUahI)
 
 ### Victor Borge
 - [The Best of Victor Borge](https://youtu.be/f00VEflQ5VQ)
