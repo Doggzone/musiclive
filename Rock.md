@@ -72,6 +72,8 @@ title: Rock
 - [Sunshine Of Your Love (Royal Albert Hall 2005)](https://youtu.be/cYYeM_t6b5c)
 
 #### Deep Purple
+- [Live at Essener Pop & Blues Festival 1969](https://youtu.be/g0kTnE9v4yE)
+- [Live at Granada TV - 1970](https://youtu.be/Gwzq52iNaaM)
 - [New York in 1973](https://youtu.be/1En47iPE9qE)
 
 #### Dire Straits
