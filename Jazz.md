@@ -10,6 +10,10 @@ title: Jazz
 - [Take Five](https://youtu.be/tT9Eh8wNMkw)
 - [Live in 64](https://youtu.be/-3R3Avq--RE)
 
+#### John Coltrane
+- [On Green Dolphin Street (Live 1960)](https://youtu.be/ePScRElDHOY)
+- [Belgium 1965 (Full Performance)](https://youtu.be/IsBbM5PIAHk)
+
 #### John Coltrane & Stan Getz
 - [Autumn Leaves / What's New / Moonlight in Vermont](https://youtu.be/pc6CWfBgIt8) with Wynton Kelly
 - [Hackensack](https://youtu.be/beCGdmrP8Xc) with Oscar Peterson
@@ -19,6 +23,12 @@ title: Jazz
 
 #### Bill Evans
 - [Live '64 '75](https://youtu.be/uco5FNbjqv0)
+- [Some Day My Prince Will Come - London, March 19, 1965](https://youtu.be/VigOzx_8BbU)
+- [My Foolish Heart](https://youtu.be/a2LFVWBmoiw)
+- ['Round Midnight (1970)](https://youtu.be/3QwiTYBzU68)
+
+#### Ella Fitzgerald
+- [Summertime (1968)](https://youtu.be/u2bigf337aU)
 
 #### Stan Getz & Chet Baker
 - [In Stockholm 1983](https://youtu.be/OqQWVrfjatA)
@@ -95,6 +105,9 @@ title: Jazz
 - [It Don’t Mean a Thing at Ronnie Scott’s London](https://youtu.be/skewZW-Mzbk)
 - [At Ronnie Scott’s in 1985](https://youtu.be/GPjIA_YnpR4)
 
+#### Oscar Peterson
+- [C Jam Blues](https://youtu.be/NTJhHn-TuDY)
+
 #### Sonny Rollins
 - [The Bridge](https://youtu.be/ZIq5w-NogWA) with Jim Hall
 
@@ -107,8 +120,11 @@ title: Jazz
 #### Sarah Vaughan
 - [Misty (Live from Sweden 1964)](https://youtu.be/lJXLqAutql4)
 - [The More I See You (Live from Sweden) 1964](https://youtu.be/rLZkezRkJtw)
+- [Stockholm 1967](https://youtu.be/IlSQqAf7p6M)
+- [The Shadow Of Your Smile (Live from Sweden) 1967](https://youtu.be/Qcr99JAPuU8)
 - [Berliner Jazztage 1969](https://youtu.be/8RP_stm0ErA)
 - [Live At Satin Doll, Tokyo, Japan](https://youtu.be/R4fZp-QJu4I)
+- [Once In A While](https://youtu.be/AjP0rSP6SCA)
 
 ### The Joan Chamorro School
 - [My Funny Valentine](https://youtu.be/MFovHQcR5U8)
