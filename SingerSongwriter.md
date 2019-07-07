@@ -83,4 +83,5 @@ title: Singer/Songwriter
 - [Lotta Love](https://youtu.be/ELakJxPiieU)
 - [Long may You Run (unplugged)](https://youtu.be/WYna-UAt75c)
 - [Mr. Soul](https://youtu.be/EMRqN0m5c-M)
+- [Down By the River (Live at Farm Aid 1994)](https://youtu.be/TiX8Rz5C3LY)
 - [Four Strong Winds (Live at Farm Aid 1995)](https://youtu.be/yIQu_MVZcas)
