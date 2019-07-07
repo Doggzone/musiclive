@@ -21,8 +21,11 @@
 - [Newport Jazz Festival 1962](https://youtu.be/ZUB72NfTQLM)
 - [Jazz on a Summer’s Day (1959)](https://youtu.be/Htwe0NBjq4c)
 
-### The Carpenters
-- [Superstar](https://youtu.be/eGrLUavvkIA)
+### Vocals
+- [The Carpenters - Superstar](https://youtu.be/eGrLUavvkIA)
+- [Julie Andrews - Full Concert - 02/17/95](https://youtu.be/x5l-vdEwjDo)
+- [Laura & Anton - "La Vie En Rose"](https://youtu.be/-NK9zdPj-os)
+- [Tina Arena - The Windmills of Your Mind (Live)](https://youtu.be/oaYkzipUVvg)
 
 ### In the Movie
 - [Moon River from Breakfast in Tiffany](https://youtu.be/uirBWk-qd9A)
