@@ -21,6 +21,9 @@
 - [Newport Jazz Festival 1962](https://youtu.be/ZUB72NfTQLM)
 - [Jazz on a Summer’s Day (1959)](https://youtu.be/Htwe0NBjq4c)
 
+### The Carpenters
+- [Superstar](https://youtu.be/eGrLUavvkIA)
+
 ### In the Movie
 - [Moon River from Breakfast in Tiffany](https://youtu.be/uirBWk-qd9A)
 - [River of No Return](https://youtu.be/dLzeHkEQe9g)
