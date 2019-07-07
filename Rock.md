@@ -139,7 +139,8 @@ title: Rock
 
 #### Santana
 - [Evil Ways 1969 "Woodstock" Live](https://youtu.be/nPauXWjY4T8)
-- [Black Magic Woman - 8/18/1970 - Tanglewood](https://youtu.be/axbtig7w7a8)
+- [Full Concert - 08/18/70 - Tanglewood](https://youtu.be/P8dGh1iEmCY)
+  - [Black Magic Woman - 8/18/1970 - Tanglewood](https://youtu.be/axbtig7w7a8)
 
 #### Spencer Davis Group
 - [Keep on Running](https://youtu.be/iLfyL-_0g3s)
