@@ -46,6 +46,9 @@ title: Singer/Songwriter
 #### Norah Jones
 - [Concert Privé](https://youtu.be/yCNOTf9xbbY)
 
+#### Rickie Lee Jones
+- [Old Grey Whistle Test, London 1979 (5 songs, Live)](https://youtu.be/OPHMKSOeifU)
+
 #### Carole King
 - [It's Too Late](https://youtu.be/QsKdxzKz_lw)
 - [It's Too Late](https://youtu.be/YkOik48rm-Q) (2005)
