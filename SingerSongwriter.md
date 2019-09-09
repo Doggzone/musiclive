@@ -48,6 +48,7 @@ title: Singer/Songwriter
 
 #### Rickie Lee Jones
 - [Old Grey Whistle Test, London 1979 (5 songs, Live)](https://youtu.be/OPHMKSOeifU)
+- [Chuck E's in Love (Solo Acoustic) (BBC TV 1994)](https://youtu.be/EVw6jaf5O-Q)
 
 #### Carole King
 - [It's Too Late](https://youtu.be/QsKdxzKz_lw)
