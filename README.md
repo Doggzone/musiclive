@@ -1,5 +1,6 @@
 
 ### Seong-Jin Cho
+- [Schubert: 'Wanderer' Fantasy in C Major, Op. 15, D. 760, II. Adagio](https://youtu.be/CqRv__QKJ68)
 - [Finland Recital : Mozart, Schubert, Berg, Liszt (2019-10-11)](https://youtu.be/MP-FHZLP-dA)
 
 ### Keepers
