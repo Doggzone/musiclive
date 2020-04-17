@@ -19,7 +19,9 @@
 - [Chopin: Ballade No.4 In F minor, Op.52](https://youtu.be/fTdWcgEvAog), Yellow Lounge
 - [Chopin: Ballade No.3 In A-Flat Major, Op.47](https://youtu.be/EwYlLgumymo), Yellow Lounge
 - [Chopin: Ballade No.1 In G minor, Op.23](https://youtu.be/taY5oHleS4I), Yellow Lounge
-- [Chopin: Piano Concerto No.1 in E minor, Op.11](https://youtu.be/np7S8XR5eFM) at Chopin Competition Prize-winners' Concert, Warsaw Philharmonic Concert Hall, October 21, 2015
+- Chopin Competition Prize-winners' Concert, Warsaw Philharmonic Concert Hall, October 21, 2015
+  - [Chopin: Piano Concerto No.1 in E minor, Op.11](https://youtu.be/np7S8XR5eFM)
+  - [Chopin: Polonaise in A flat major Op.53](https://youtu.be/aZYYoDDmg8M)
 - [Chopin: Piano Concerto No.1 in E minor, Op.11](https://youtu.be/614oSsDS734) at Chopin Competition Final Stage 2015
 - [Chopin: Polonaise in A flat major Op.53](https://youtu.be/d3IKMiv8AHw) at Chopin Competition Second Stage 2015
 - [Chopin: Piano Sonata No.2 in B-flat minor, Op.35](https://youtu.be/zc9n2SOdksE) at Chopin Competition Second Stage 2015
