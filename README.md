@@ -27,13 +27,14 @@
   - [Chopin: Scherzo No.2 in B-flat minor, Op.31](https://youtu.be/iliNPUB9GSA) (Third Stage)
   - [Chopin: Polonaise in A flat major Op.53](https://youtu.be/d3IKMiv8AHw) (Second Stage)
   - [Chopin: Piano Sonata No.2 in B-flat minor, Op.35](https://youtu.be/zc9n2SOdksE) (Second Stage)
+  - [Chopin: Fantasy in F minor Op.49](https://youtu.be/rhIuclUqaQE) (First Stage)
   - [Chopin: Nocturne in C minor Op.48 No.1](https://youtu.be/tSAwZP8e-zQ) (First Stage)
   - [Chopin: Etude in C major Op.10 No.1](https://youtu.be/9E82wwNc7r8) (First Stage)
 
 
 ### Yuja Wang
-- [Schumann: Piano Concerto in A minor Op. 54](https://youtu.be/fWDrJT0s1s8), Wiener Symphoniker conducted by Lorenzo Viotti, Wiener Konzerthaus, January 31, 2019
-- [Rachmaninov: Prelude in G Minor, Op. 23, No. 5](https://youtu.be/GhBXx-2PadM), Live at Philharmonie, Berlin, 2018 (Deutsche Grammophon)
+- [Schumann: Piano Concerto in A minor Op.54](https://youtu.be/fWDrJT0s1s8), Wiener Symphoniker conducted by Lorenzo Viotti, Wiener Konzerthaus, January 31, 2019
+- [Rachmaninov: Prelude in G Minor, Op.23, No.5](https://youtu.be/GhBXx-2PadM), Live at Philharmonie, Berlin, 2018 (Deutsche Grammophon)
 
 ### Keepers
 - [Reflections](https://youtu.be/xW_D5HHkJnI) played for and presented to Dave Schmidt at his 60th Birthday Celebration Symposium (Many thanks to Jin Pureum)
