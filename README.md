@@ -12,7 +12,7 @@
 - [Beethoven: Piano Concerto No. 3 in C minor, Op. 37 + (encore) Schubert: Moments musicaux No. 3](https://youtu.be/F79iU5WAU-8), Kölner Philharmonie, Köln, February 22, 2019
 - [Chopin: Piano Sonata No. 3 in B Minor, Op. 58](https://youtu.be/l1uOYMei7Uo), Verbier Festival, July 23, 2018
 - [Rachmaninov: Piano Concerto No. 2 in C minor, Op. 18 + (encore) Chopin: Prelude in B Minor, Op. 28, No. 6](https://youtu.be/fr976_FAFs4), Hessischer Rundfunk, Frankfurt am Main Alte Oper, Germany, May 25, 2018
-- [Chopin: 24 Preludes, Op. 28](https://youtu.be/QWFR9joxbpc)
+- [Chopin: 24 Preludes, Op. 28](https://youtu.be/QWFR9joxbpc), Gilmore Keyboard Festival's 2016-17 Rising Stars Series
 - [Chopin: Piano Concerto No.1 in E minor, Op. 11](https://youtu.be/614oSsDS734) at Chopin Competition Final Stage 2015
 
 
