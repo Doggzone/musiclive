@@ -22,12 +22,13 @@
 - Chopin Competition Prize-winners' Concert, Warsaw Philharmonic Concert Hall, October 21, 2015
   - [Chopin: Piano Concerto No.1 in E minor, Op.11](https://youtu.be/np7S8XR5eFM)
   - [Chopin: Polonaise in A flat major Op.53](https://youtu.be/aZYYoDDmg8M)
-- [Chopin: Piano Concerto No.1 in E minor, Op.11](https://youtu.be/614oSsDS734) at Chopin Competition Final Stage 2015
-- [Chopin: Scherzo No.2 in B-flat minor, Op.31](https://youtu.be/iliNPUB9GSA) at Chopin Competition Third Stage 2015
-- [Chopin: Polonaise in A flat major Op.53](https://youtu.be/d3IKMiv8AHw) at Chopin Competition Second Stage 2015
-- [Chopin: Piano Sonata No.2 in B-flat minor, Op.35](https://youtu.be/zc9n2SOdksE) at Chopin Competition Second Stage 2015
-- [Chopin: Nocturne in C minor Op.48 No.1](https://youtu.be/tSAwZP8e-zQ) at Chopin Competition First Stage 2015
-- [Chopin: Etude in C major Op.10 No.1](https://youtu.be/9E82wwNc7r8) at Chopin Competition First Stage 2015
+- XVII International Chopin Piano Competition 2015
+  - [Chopin: Piano Concerto No.1 in E minor, Op.11](https://youtu.be/614oSsDS734) (Final Stage)
+  - [Chopin: Scherzo No.2 in B-flat minor, Op.31](https://youtu.be/iliNPUB9GSA) (Third Stage)
+  - [Chopin: Polonaise in A flat major Op.53](https://youtu.be/d3IKMiv8AHw) (Second Stage)
+  - [Chopin: Piano Sonata No.2 in B-flat minor, Op.35](https://youtu.be/zc9n2SOdksE) (Second Stage)
+  - [Chopin: Nocturne in C minor Op.48 No.1](https://youtu.be/tSAwZP8e-zQ) (First Stage)
+  - [Chopin: Etude in C major Op.10 No.1](https://youtu.be/9E82wwNc7r8) (First Stage)
 
 
 ### Yuja Wang
